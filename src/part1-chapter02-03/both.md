@@ -1,0 +1,12 @@
+[The Three Ways: Difficulty, Danger, and Destruction]
+I believe then, that they all went on till they came to the foot of an Hill, at the bottom of which was a Spring. There was also in the same place two other ways besides that which came straight from the Gate; one turned to the left hand, and the other to the right, at the bottom of the Hill: but the narrow way lay right up the Hill, (and the name of the going up the side of the Hill, is called Difficulty.) Christian now went to the Spring [Isa. 49.10] and drank thereof to refresh himself, and then began to go up the Hill; saying,
+
+This Hill, though high, I covet to ascend,
+The difficulty will not me offend:
+For I perceive the way to life lies here;
+Come, pluck up, Heart; lets neither faint nor fear:
+Better, tho difficult, th' right way to go,
+Then wrong, though easie, where the end is wo.
+The other two also came to the foot of the hill. But when they saw that the hill was steep and high, and that there were two other ways to go; and supposing also that these two ways might meet again with that up which Christian went, on the other side of the hill; therefore they were resolved to go in those ways. Now the name of one of those ways was Danger, and the name of the other Destruction. So the one took the way which is called Danger, which led him into a dark wood; and the other took directly up the way to Destruction, which led him into a wide field, full of dark mountains, where he stumbled and fell, and rose no more.
+
+I looked then after Christian, to see him go up the hill, where I perceived he fell from running to going, and from going to clambering upon his hands and his knees, because of the steepness of the place. Now about the midway to the top of the hill was a pleasant Arbor, made by the Lord of the hill for the refreshment of weary travellers. Thither, therefore, Christian got, where also he sat down to rest him: then he pulled his roll out of his bosom, and read therein to his comfort; he also now began afresh to take a review of the coat or garment that was given to him as he stood by the cross. Thus pleasing himself awhile, he at last fell into a slumber, and thence into a fast sleep, which detained him in that place until it was almost night; and in his sleep his roll fell out of his hand. Now, as he was sleeping, there came one to him, and awaked him, saying, "Go to the ant, thou sluggard; consider her ways, and be wise." [Prov. 6:6.] And with that, Christian suddenly started up, and sped him on his way, and went apace till he came to the top of the hill.
