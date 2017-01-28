@@ -10,7 +10,7 @@ process.chdir(join(__dirname, '..'))
 let dirs = fs.readdirSync('src')
 for (let dir of dirs) {
   let srcPath = `src/${dir}/both.md`
-  let jaPath = `src/${dir}/ja.md`
+  let jaPath = `src/${dir}/jp.md`
 
   let text = fs.readFileSync(srcPath).toString()
   // Split by '-e-' and '-j-'
