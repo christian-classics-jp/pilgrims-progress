@@ -15,6 +15,9 @@ for (let dir of dirs) {
   let text = fs.readFileSync(srcPath).toString()
   // Split by '-e-' and '-j-'
   let texts = text.split(/-[ej]-/)
+  if (texts.length < 3) {
+    continue
+  }
   let jaList = []
   texts.forEach((t, i) => {
     if (i % 2 === 0) {
