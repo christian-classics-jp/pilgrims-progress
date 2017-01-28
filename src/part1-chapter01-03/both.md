@@ -6,7 +6,7 @@ Now as Christian was walking solitary by himself, he espied one afar off come cr
 -e-
 WORLD. How now, good fellow, whither away after this burdened manner?
 -j-
-世の知恵「こんちには。そんなに大きな重荷を背負ってどちらに行かれるのですか」
+世の賢者「こんちには。そんなに大きな重荷を背負ってどちらに行かれるのですか」
 -e-
 CHR. A burdened manner indeed, as ever I think poor creature had! And whereas you ask me, Whither away? I tell you, sir, I am going to yonder wicket-gate before me; for there, as I am informed, I shall be put into a way to be rid of my heavy burden.
 -j-
@@ -14,7 +14,7 @@ CHR. A burdened manner indeed, as ever I think poor creature had! And whereas yo
 -e-
 WORLD. Hast thou a wife and children?
 -j-
-世の知恵「あなたには、妻や子供はおられますか」
+世の賢者「あなたには、妻や子供はおられますか」
 -e-
 CHR. Yes; but I am so laden with this burden, that I cannot take that pleasure in them as formerly: methinks I am as if I had none. [1 Cor. 7:29.]
 -j-
@@ -22,7 +22,7 @@ CHR. Yes; but I am so laden with this burden, that I cannot take that pleasure i
 -e-
 WORLD. Wilt thou hearken to me, if I give thee counsel?
 -j-
-世の知恵「聞いてもらえますか。助言できると思います」
+世の賢者「聞いてもらえますか。助言できると思います」
 -e-
 CHR. If it be good, I will; for I stand in need of good counsel.
 -j-
@@ -30,7 +30,7 @@ CHR. If it be good, I will; for I stand in need of good counsel.
 -e-
 WORLD. I would advise thee, then, that thou with all speed get thyself rid of thy burden; for thou wilt never be settled in thy mind till then: nor canst thou enjoy the benefits of the blessings which God hath bestowed upon thee till then.
 -j-
-世の知恵「では。その重荷をはやく降ろしてしまいなさい。そうしなければ、心の平穏が訪れることはありませんし、神があなたに与えてくださる祝福を楽しむこともできません」
+世の賢者「では。その重荷をはやく降ろしてしまいなさい。そうしなければ、心の平穏が訪れることはありませんし、神があなたに与えてくださる祝福を楽しむこともできません」
 -e-
 CHR. That is that which I seek for, even to be rid of this heavy burden: but get it off myself I cannot, nor is there any man in our country that can take it off my shoulders; therefore am I going this way, as I told you, that I may be rid of my burden.
 -j-
@@ -38,7 +38,7 @@ CHR. That is that which I seek for, even to be rid of this heavy burden: but get
 -e-
 WORLD. Who bid thee go this way to be rid of thy burden?
 -j-
-世の知恵「この道を行くようにと誰が言ったのですか」
+世の賢者「この道を行くようにと誰が言ったのですか」
 -e-
 CHR. A man that appeared to me to be a very great and honorable person: his name, as I remember, is Evangelist.
 -j-
@@ -49,7 +49,7 @@ Thou hast met with something, as I perceive, already; for I see the dirt of the 
 Hear me; I am older than thou: thou art like to meet with, in the way which thou goest, wearisomeness, painfulness, hunger, perils, nakedness, sword, lions, dragons, darkness, and, in a word, death, and what not.
 These things are certainly true, having been confirmed by many testimonies. And should a man so carelessly cast away himself, by giving heed to a stranger?
 -j-
-世の知恵「そんな助言をするなんて、まったくひどい人ですね！ 彼があなたに勧めた道ほど危険で困難な道は、この世に他にありませんよ。助言どおりに行ったら大変なことになります。お察ししますが、さっそくやっかいごとにあったんでしょう。なにしろ、失望の沼の泥が体に付いていますからね。沼は悲しみの始まりにすぎません。このまま行くと多くの悲しみにあうことになります。よく聞いてくださいね。私はあなたより齢を重ねています。あなたがこれから行こうとしている道で待ち構えているのは、疲労困憊、痛み、飢え、危険、裸、剣、獅子、竜、闇、そして死などです。本当です。嘘じゃありません。多くの証言があります。ですから、赤の他人の忠告でも真剣に受け止めれば、その道に身を投げ出すなどという愚かなことをする人はいないでしょうね。
+世の賢者「そんな助言をするなんて、まったくひどい人ですね！ 彼があなたに勧めた道ほど危険で困難な道は、この世に他にありませんよ。助言どおりに行ったら大変なことになります。お察ししますが、さっそくやっかいごとにあったんでしょう。なにしろ、失望の沼の泥が体に付いていますからね。沼は悲しみの始まりにすぎません。このまま行くと多くの悲しみにあうことになります。よく聞いてくださいね。私はあなたより齢を重ねています。あなたがこれから行こうとしている道で待ち構えているのは、疲労困憊、痛み、飢え、危険、裸、剣、獅子、竜、闇、そして死などです。本当です。嘘じゃありません。多くの証言があります。ですから、赤の他人の忠告でも真剣に受け止めれば、その道に身を投げ出すなどという愚かなことをする人はいないでしょうね。
 -e-
 CHR. Why, sir, this burden on my back is more terrible to me than are all these things which you have mentioned: nay, methinks I care not what I meet with in the way, if so be I can also meet with deliverance from my burden.
 -j-
