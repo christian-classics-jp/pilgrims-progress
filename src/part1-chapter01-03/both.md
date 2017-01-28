@@ -14,7 +14,7 @@ CHR. A burdened manner indeed, as ever I think poor creature had! And whereas yo
 -e-
 WORLD. Hast thou a wife and children?
 -j-
-世の賢者「あなたには、妻や子供はおられますか」
+世の賢者「あなたには、妻子はおられますか」
 -e-
 CHR. Yes; but I am so laden with this burden, that I cannot take that pleasure in them as formerly: methinks I am as if I had none. [1 Cor. 7:29.]
 -j-
@@ -51,7 +51,7 @@ These things are certainly true, having been confirmed by many testimonies. And 
 -j-
 世の賢者「そんな助言をするなんて、まったくひどい人ですね！ 彼があなたに勧めた道ほど危険で困難な道は、この世に他にありませんよ。助言どおりに行ったら大変なことになります。お察ししますが、さっそくやっかいごとに巻き込まれたんでしょう。なにしろ、失望の沼の泥が体に付いていますからね。沼は悲しみの始まりにすぎません。このまま行くと多くの悲しみにあうことになります。
 
-よく聞いてくださいね。私はあなたより齢を重ねています。あなたが歩いている道で待ち構えているのは、疲労困憊、痛み、飢え、危険、裸、剣、獅子、竜、闇、そして死などです。本当です。嘘じゃありません。多くの証言があります。ですから、赤の他人の忠告でも真剣に受け止めれば、その道に身を投げ出すなどという愚かなことをする人はいないでしょうね」
+よく聞いてくださいね。私はあなたより齢を重ねています。あなたが歩いている道で待ち構えているのは、疲労困憊、痛み、飢え、危険、裸、剣、獅子、竜、闇、そして死などです。本当です。嘘じゃありません。多くの証言があります。ですから、赤の他人の忠告でも真剣に受け止めれば、その道に身を投げ出すなどという愚をおかす人はいないでしょうね」
 -e-
 CHR. Why, sir, this burden on my back is more terrible to me than are all these things which you have mentioned: nay, methinks I care not what I meet with in the way, if so be I can also meet with deliverance from my burden.
 -j-
@@ -83,7 +83,7 @@ CHR. Sir, I pray open this secret to me.
 -e-
 WORLD. Why, in yonder village (the village is named Morality) there dwells a gentleman whose name is Legality, a very judicious man, and a man of a very good name, that has skill to help men off with such burdens as thine is from their shoulders; yea to my knowledge, he hath done a great deal of good this way; aye, and besides, he hath skill to cure those that are somewhat crazed in their wits with their burdens. To him, as I said, thou mayest go, and be helped presently. His house is not quite a mile from this place; and if he should not be at home himself, he hath a pretty young man to his son, whose name is Civility, that can do it (to speak on) as well as the old gentleman himself: there, I say, thou mayest be eased of thy burden; and if thou art not minded to go back to thy former habitation, (as indeed I would not wish thee,) thou mayest send for thy wife and children to this village, where there are houses now standing empty, one of which thou mayest have at a reasonable rate: provision is there also cheap and good; and that which will make thy life the more happy is, to be sure there thou shalt live by honest neighbors, in credit and good fashion.
 -j-
-世の賢者「もちろんです。あちらのほうに〈道徳〉村という村があって、そこに〈遵法〉という名前の方がいます。非常に思慮深く、非常に良い名前を持っておられます。その方は、あなたのような人から重荷を降ろす方法を心得ていらっしゃいます。じっさい私の知るところによると、あの方は、この道に迷い込んだ人を何人も助けました。それだけでなく、重荷のせいで正気を失った人を直す方法もご存知です。ですから、申し上げたとおり、すぐにあの方のところで助けてもらいなさい。ここからそう遠くありません。あの方がご在宅でなかったとしても、家には〈礼節〉という名前の若いご子息がおられます。お父上と引けを取らない腕前ですから大丈夫です。そこに行けば、重荷を取ってもらえます。それに、もしあなたが前に住んでいた町に戻るのがお嫌でしたら、奥様と子供をこの町に呼びにやることもできます。私も前の町に戻るのはおすすめしません。この町にはいくつか空家があって、手頃な値段で買えます。物価も安くて良い物が手に入ります。ここは隣人もきちんとしていて正直で信頼できますから、以前の生活よりも良くなることうけあいです」
+世の賢者「もちろんです。あちらのほうに〈道徳〉村という村があって、そこに〈遵法〉という名前の方がいます。非常に思慮深く、非常に良い名前を持っておられます。その方は、あなたのような人から重荷を降ろす方法を心得ていらっしゃいます。じっさい私の知るところによると、あの方は、この道に迷い込んだ人を何人も助けました。それだけでなく、重荷のせいで正気を失った人を直す方法もご存知です。ですから、申し上げたとおり、すぐにあの方のところで助けてもらいなさい。ここからそう遠くありません。あの方がご在宅でなかったとしても、家には〈礼節〉という名前の若いご子息がおられます。お父上と引けを取らない腕前ですから大丈夫です。そこに行けば、重荷を取ってもらえます。それに、もしあなたが前に住んでいた町に戻るのがお嫌でしたら、妻子をこの町に呼びにやることもできます。私も前の町に戻るのはおすすめしません。この町にはいくつか空家があって、手頃な値段で買えます。物価も安くて良い物が手に入ります。ここは隣人もきちんとしていて正直で信頼できますから、前の暮らしよりも良くなることうけあいです」
 -e-
 Now was Christian somewhat at a stand; but presently he concluded, If this be true which this gentleman hath said, my wisest course is to take his advice: and with that he thus farther spake.
 -j-
