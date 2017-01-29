@@ -13,7 +13,7 @@ Section 1
 + [x] 1	Flight from the City of Destruction
 + [x] 2	The Slough of Despond
 + [x] 3	Mr. Worldly Wiseman
-+ [ ] 4	The Wicket Gate
++ [x] 4	The Wicket Gate
 + [ ] 5	The House of the Interpreter
 
 Section 2
