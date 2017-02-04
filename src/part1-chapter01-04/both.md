@@ -129,4 +129,4 @@ He told him, "As to thy burden, be content to bear it until thou comest to the p
 -e-
 Then Christian began to gird up his loins, and to address himself to his journey. So the other told him, that by that he was gone some distance from the gate, he would come to the house of the Interpreter, at whose door he should knock, and he would show him excellent things. Then Christian took his leave of his friend, and he again bid him God speed.
 -j-
-こうして、クリスチャンは腰の帯を閉め、旅を続けることにした。好意は、「門からしばらく進むと、解き明かす者の家に着きます。そこで扉を叩きなさい。彼が素晴らしいことを教えてくれます」と言った。それから、クリスチャンは友のところを発ち、好意は神の祝福を祈った。
+こうして、クリスチャンは腰の帯を閉め、旅を続けることにした。好意は、「門からしばらく進むと、解釈者の家に着きます。そこで扉を叩きなさい。彼が素晴らしいことを教えてくれます」と言った。それから、クリスチャンは友のところを発ち、好意は神の祝福を祈った。
