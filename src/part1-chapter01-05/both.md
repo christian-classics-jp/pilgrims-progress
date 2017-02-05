@@ -189,12 +189,10 @@ MAN. I have crucified him to myself afresh, [Heb. 6:6]; I have despised his pers
 CHR. For what did you bring yourself into this condition?
 -j-
 クリスチャン「どうしてそんなふうになったのですか」
--c-
-ここまで校正済み
 -e-
 MAN. For the lusts, pleasures, and profits of this world; in the enjoyment of which I did then promise myself much delight: but now every one of those things also bite me, and gnaw me like a burning worm.
 -j-
-男「この世の情欲、享楽、利益に振り回されました。そういうものを楽しみながら、自分を大きな喜びに心に決めました。しかし、今やそれらのものが私を虫のように激しく噛み、かじります」
+男「この世の情欲、享楽、利益だ。そういうものにどっぷりとつかって、喜びが尽きることはないだろうと思った。だが今や、それらのものが虫のように私をかじり食っている」
 -e-
 CHR. But canst thou not now repent and turn?
 -j-
@@ -202,37 +200,60 @@ CHR. But canst thou not now repent and turn?
 -e-
 MAN. God hath denied me repentance. His word gives me no encouragement to believe; yea, himself hath shut me up in this iron cage: nor can all the men in the world let me out. Oh eternity! eternity! how shall I grapple with the misery that I must meet with in eternity?
 -j-
-男「神が私に悔い改めを与えてくださらないのです。神のことばが私に信じる勇気を与えません。そうです。神ご自身が私を牢屋の中に閉じ込めておかれたのです。世界中のどんな人間でも私をここから出せません。ああ、永遠にです！ 永遠に！ 永遠に受けなければならないこの悲惨な状態に、私がどうしてあらがえましょうか」
+男「神が私から悔い改めを取り上げたのだ。神のことばはもう私を信仰へと励まさない。そうだ、神ご自身が私を牢獄に閉じ込めた。世界中のどんな人間でも私を外に出せない。ああ、永遠に！ 永遠に！ 永遠に続くこの不幸に、私ごときがどうして手出しできようか」
 -e-
 INTER. Then said the Interpreter to Christian, Let this man’ misery be remembered by thee, and be an everlasting caution to thee.
 -j-
-解釈者「この男の悲惨な状態をとこしえの戒めとして覚えてください」
+解釈者「この男の不幸をとこしえの戒めとして覚えてください」
 -e-
 CHR. Well, said Christian, this is fearful! God help me to watch and to be sober, and to pray that I may shun the cause of this man’ misery. Sir, is it not time for me to go on my way now?
 -j-
-クリスチャン「おそろしい！ 私が目を覚まして気をつけていられるように神が助けてくださいますように。また、この男の悲惨に陥らないよう祈れますように。そろそろ私は旅を続けるべき時ではないでしょうか」
+クリスチャン「なんとおそろしい！ 私が目を覚まして気をつけていられるように、神が助けてくださいますように。また、この男のような不幸に陥らぬよう祈れますように。先生、そろそろ私は旅を続けるべき時ではないでしょうか」
 -e-
 INTER. Tarry till I shall show thee one thing more, and then thou shalt go on thy way. So he took Christian by the hand again and led him into a chamber where there was one rising out of bed; and as he put on his raiment, he shook and trembled. Then said Christian, Why doth this man thus tremble? The Interpreter then bid him tell to Christian the reason of his so doing.
 -j-
 解釈者「もうひとつだけお見せしますから、それまでお待ちください。その後でお行きなさい」
 
-彼はまたクリスチャンの手を取って、ある部屋に案内した。そこでは、ひとりの人が寝床から起き上がろうとしていた。彼が服を着ると、ショックで震えた。クリスチャンは「どうしてこの人は震えているのですか」と尋ねた。解釈者は彼に理由を説明するように促した。
+彼はまたクリスチャンの手を取って、ある部屋に案内した。そこでは、ひとりの人が寝床から起き上がるところだった。彼は服を着ると、ガタガタと震えた。クリスチャンは「どうしてこの人は震えているのですか」と尋ねた。解釈者は彼に理由を説明するよう促した。
 -e-
 So he began, and said, "This night, as I was in my sleep, I dreamed, and behold the heavens grew exceeding black; also it thundered and lightened in most fearful wise, that it put me into an agony. So I looked up in my dream, and saw the clouds rack at an unusual rate; upon which I heard a great sound of a trumpet, and saw also a man sitting upon a cloud, attended with the thousands of heaven: they were all in flaming fire; also the heavens were in a burning flame. I heard then a voice, saying, ’rise, ye dead, and come to judgment.’And with that the rocks rent, the graves opened, and the dead that were therein came forth: some of them were exceeding glad, and looked upward; and some sought to hide themselves under the mountains. Then I saw the man that sat upon the cloud open the book, and bid the world draw near. Yet there was, by reason of a fierce flame that issued out and came from before him, a convenient distance between him and them, as between the judge and the prisoners at the bar. [1 Cor. 15; 1 Thess. 4:16; Jude 15; John 5: 28,29; 2 Thess. 1:8-10; Rev. 20:11-14; Isa. 26:21; Micah 7:16,17; Psa. 5:4; 50:1-3; Mal. 3:2,3; Dan. 7:9,10.] I heard it also proclaimed to them that attended on the man that sat on the cloud, Gather together the tares, the chaff, and stubble, and cast them into the burning Lake.’[Matt. 3:12; 18:30; 24:30; Mal. 4:1.] And with that the bottomless pit opened, just whereabout I stood; out of the mouth of which there came, in an abundant manner, smoke, and coals of fire, with hideous noises. It was also said to the same persons, Gather my wheat into my Garner.[Luke 3:17.] And with that I saw many catched up and carried away into the clouds, but I was left behind. [1 Thess. 4:16,17.] I also sought to hide myself, but I could not, for the man that sat upon the cloud still kept his eye upon me; my sins also came into my mind, and my conscience did accuse me on every side. [Rom. 2:14,15.] Upon this I awakened from my sleep."
 -j-
-彼は話し始めた。「今夜、眠っている間に夢を見ました。天が真っ暗になり、世にも恐ろしいさまで雷鳴がとどろきました。それで私は震え上がりました。
-それで、夢の中で上を見ると、
+彼は話し始めた。「夜、眠っている間に夢を見ました。天が真っ暗になり、世にも恐ろしいさまで雷鳴がとどろきました。それで私はおびえました。夢の中で見上げると、雲がものすごい速さで流れていました。そこからラッパの音がけたたましく鳴り響くのが聞こえました。また雲の上にひとりの人が座っていて、天の軍勢を従えているのが見えました。軍勢は燃えさかる火に覆われ、天もまた火に覆われていました。そのとき、声が聞こえました。
 
+『死人たちよ、起き上がれ。裁きの時が来た』
+
+すると、岩が裂け、墓が開き、死人がそこから出てきました。ある者は歓喜して天を見上げ、ある者は山の下に隠れようとしていました。それから、雲の上に座っておられる方が本を開き、世界よ近づきなさいと命じるのを見ました。ところが、彼の前から吹き出る激しい炎のゆえに、彼と世界との間には、法廷での裁判官と囚人のように一定の距離が保たれてしました（第一コリント15:1-58、第一テサロニケ4:16、ユダ1:15、ヨハネ5:28-29、第二テサロニケ1:8-10、黙示録20:11-14、イザヤ26:21、ミカ7:16-17、詩篇5:4、詩篇50:1-3、マラキ3:2,3、ダニエル7:9-10）。また、雲の上の方に従っている軍勢に、こう命じるのが聞こえました。
+
+『雑草、わら、切り株を集めて、火の池に投げ込め』（マタイ3:12、マタイ18:30、マタイ24:30、マラキ4:1）
+
+すると、私の立っているところのすぐ近くに、底知れぬ穴が口を開きました。そこからすさまじい音でおびただしい量の煙と炭火が吹き出てきました。また、雲の上の方が言われました。
+
+『私の麦穂を収穫して穀物倉に納めよ』（ルカ3:17）
+
+すると、大勢の者が雲の中に引き上げられていくのが見えましたが、私は取り残されました（第一テサロニケ4:16-17）。私もどこかに隠れようとしましたが、できませんでした。雲の上の方が私をじっと見つめておられたからです。心の中に私の罪もあふれてきて、良心が自分を責め立てました。（ローマ2:14-15）そこで眠りから覚めました」
+-e-
 CHR. But what was it that made you so afraid of this sight?
-
+-j-
+クリスチャン「けれども、その夢を見て、どうしてそんなに恐れているのですか」
+-e-
 MAN. Why, I thought that the day of judgment was come, and that I was not ready for it: but this frightened me most, that the angels gathered up several, and left me behind; also the pit of hell opened her mouth just where I stood. My conscience too afflicted me; and, as I thought, the Judge had always his eye upon me, showing indignation in his countenance.
-
+-j-
+男「それはもう、裁きの日が来たのに私はその備えができていないと思ったからです。最も恐ろしかったのは、御使いが多くの者を引き上げたのに、私だけ取り残されたことです。また、地獄の穴が私のすぐ近くに口を開いたことも。良心も私を責め立てました。それで私は思ったとおり、裁き主の目はいつも私の上にあり、その御顔には憤りがありました」
+-e-
 Then said the Interpreter to Christian, "Hast thou considered all these things?"
-
+-j-
+そのとき、解釈者がクリスチャンが言った。「これらすべてのことについてよく考えましたか」
+-e-
 CHR. Yes, and they put me in hope and fear.
-
+-j-
+クリスチャン「はい、すべてが希望と恐れとなって私の中にあります」
+-e-
 INTER. Well, keep all things so in thy mind, that they may be as a goad in thy sides, to prick thee forward in the way thou must go. Then Christian began to gird up his loins, and to address himself to his journey. Then said the Interpreter, "The Comforter be always with thee, good Christian, to guide thee in the way that leads to the city."
+-j-
+解釈者「さあ、すべてのことを心の中にとどめ、それらがあなたを刺し通すようにしなさい。あなたが行く道を進む時に、その痛みがあなたを刺すように」
 
+クリスチャンは腰巻きを締め、旅に出ることにした。解釈者は祈った。「善良なクリスチャンよ、慰め主がいつもあなたと共におられ、都に至る道で導いてくださいますように」
+-e-
 So Christian went on his way, saying,
 
 "Here I have seen things rare and profitable,
@@ -241,3 +262,12 @@ In what I have begun to take in hand:
 Then let me think on them, and understand
 Wherefore they showed me were, and let me be
 Thankful, O good Interpreter, to thee."
+-j-
+それでクリスチャンは旅路を出発した。
+
+「ここで貴重なためになるものを見た。
+喜ばしいもの、恐ろしいもの、身を引き締めるもの。
+それらを手近に引き寄せて、
+よくわかるまで考えよ。
+なぜそれらを私に見せてくれたのかを。
+感謝しよう。ああ、良き解釈者、あなたに」
