@@ -14,11 +14,11 @@ Section 1
 + [x] 2	The Slough of Despond
 + [x] 3	Mr. Worldly Wiseman
 + [x] 4	The Wicket Gate
-+ [ ] 5	The House of the Interpreter
++ [x] 5	The House of the Interpreter
 
 Section 2
-+ [ ] 1	Cross and sepulchre
-+ [ ] 2	Simple, Sloth, and Presumption; Formalist and Hypocrisy
++ [x] 1	Cross and sepulchre
++ [x] 2	Simple, Sloth, and Presumption; Formalist and Hypocrisy
 + [ ] 3	The Three Ways: Difficulty, Danger, and Destruction
 + [ ] 4	Timorous and Mistrust
 + [ ] 5	The House Beautiful
