@@ -19,7 +19,7 @@ Section 1
 Section 2
 + [x] 1	Cross and sepulchre
 + [x] 2	Simple, Sloth, and Presumption; Formalist and Hypocrisy
-+ [ ] 3	The Three Ways: Difficulty, Danger, and Destruction
++ [x] 3	The Three Ways: Difficulty, Danger, and Destruction
 + [ ] 4	Timorous and Mistrust
 + [ ] 5	The House Beautiful
 + [ ] 6	The Valley of Humiliation and Apollyon
