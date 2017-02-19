@@ -63,7 +63,7 @@ The Neighbors also came out to see him run [Jer. 20.10.], and as he ran, some mo
 「隣人どの、どこに行かれるのですか」
 「あなたを連れ戻しに来たのです」
 だが、彼はきっぱりと断った。
-「そんなことできっこありません。あなたたちが住んでいるのは〈滅びの町〉です。そこは私が生まれ故郷でもありますが、町はまもなく滅びます。そこにいたら、死んで、墓よりも深いところにくだることになります。そこでは火と硫黄が尽きません。ですが、安心してください。私と一緒に来てください」
+「そんなことできっこありません。あなたたちが住んでいるのは〈滅びの町〉です。そこは私の生まれ故郷でもありますが、町はまもなく滅びます。そこにいたら、死んで、墓よりも深いところにくだることになります。そこでは火と硫黄が尽きません。ですが、安心してください。私と一緒に来てください」
 -e-
 What! said Obstinate, and leave our Friends, and our Comforts behind us!
 -j-
@@ -186,7 +186,7 @@ Pli. The hearing of this is enough to ravish ones heart; but are these things to
 -e-
 Chr. The Lord, the Governour of that Countrey, hath Recorded that in this Book [Isa. 55.12. John 7.37. Chap. 6.37. Rev. 21.6. Chap. 22.17.]: The substance of which is, If we be truly willing to have it, he will bestow it upon us freely.
 -j-
-クリスチャン「かの御国の支配者である主が、この本に書き記してくださいました（イザヤ55:12、ヨハネ7:37、黙示録6:37、黙示録21:6、黙示録22.17）。その要点は、私たちがそれを真摯に求めるなら、主が私たちに気前よく与えてくださるということです」
+クリスチャン「かの御国の支配者である主が、この本に書き記してくださいました（イザヤ55:12、ヨハネ7:37、黙示録6:37、黙示録21:6、黙示録22:17）。その要点は、私たちがそれを真摯に求めるなら、主が私たちに気前よく与えてくださるということです」
 -e-
 Pli. Well, my good Companion, glad am I to hear of these things: Come on, let us mend our pace.
 -j-

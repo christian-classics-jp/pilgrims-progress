@@ -11,7 +11,7 @@ CHR. Sir, here is a traveller, who was bid by an acquaintance of the good man of
 -e-
 So he called for the master of the house, who, after a little time, came to Christian, and asked him what he would have.
 -j-
-その人は主人を呼びに入った。しばらくして主人が来て、「どんなご用件ですか」尋ねた。
+その人は主人を呼びに入った。しばらくして主人が来て、「どんなご用件ですか」と尋ねた。
 -e-
 CHR. Sir, said Christian, I am a man that am come from the city of Destruction, and am going to the Mount Zion; and I was told by the man that stands at the gate at the head of this way, that if I called here you would show me excellent things, such as would be helpful to me on my journey.
 -j-
@@ -222,7 +222,7 @@ So he began, and said, "This night, as I was in my sleep, I dreamed, and behold 
 
 『死人たちよ、起き上がれ。裁きの時が来た』
 
-すると、岩が裂け、墓が開き、死人がそこから出てきました。ある者は歓喜して天を見上げ、ある者は山の下に隠れようとしていました。それから、雲の上に座っておられる方が本を開き、世界よ近づきなさいと命じるのを見ました。ところが、彼の前から吹き出る激しい炎のゆえに、彼と世界との間には、法廷での裁判官と囚人のように一定の距離が保たれてしました（第一コリント15:1-58、第一テサロニケ4:16、ユダ1:15、ヨハネ5:28-29、第二テサロニケ1:8-10、黙示録20:11-14、イザヤ26:21、ミカ7:16-17、詩篇5:4、詩篇50:1-3、マラキ3:2,3、ダニエル7:9-10）。また、雲の上の方に従っている軍勢に、こう命じるのが聞こえました。
+すると、岩が裂け、墓が開き、死人がそこから出てきました。ある者は歓喜して天を見上げ、ある者は山の下に隠れようとしていました。それから、雲の上に座っておられる方が本を開き、世界よ近づきなさいと命じるのを見ました。ところが、彼の前から吹き出る激しい炎のゆえに、彼と世界との間には、法廷での裁判官と囚人のように一定の距離が保ってありました（第一コリント15:1-58、第一テサロニケ4:16、ユダ1:15、ヨハネ5:28-29、第二テサロニケ1:8-10、黙示録20:11-14、イザヤ26:21、ミカ7:16-17、詩篇5:4、詩篇50:1-3、マラキ3:2,3、ダニエル7:9-10）。また、雲の上の方に従っている軍勢に、こう命じるのが聞こえました。
 
 『雑草、わら、切り株を集めて、火の池に投げ込め』（マタイ3:12、マタイ18:30、マタイ24:30、マラキ4:1）
 
@@ -242,7 +242,7 @@ MAN. Why, I thought that the day of judgment was come, and that I was not ready 
 -e-
 Then said the Interpreter to Christian, "Hast thou considered all these things?"
 -j-
-そのとき、解釈者がクリスチャンが言った。「これらすべてのことについてよく考えましたか」
+そのとき、解釈者がクリスチャンに言った。「これらすべてのことについてよく考えましたか」
 -e-
 CHR. Yes, and they put me in hope and fear.
 -j-

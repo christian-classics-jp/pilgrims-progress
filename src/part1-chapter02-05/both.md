@@ -1,25 +1,53 @@
+# (十) 美しの家
+-e-
 [The House Beautiful]
 Now by this time he was come to the arbor again, where for a while he sat down and wept; but at last, (as Providence would have it,) looking sorrowfully down under the settle, there he espied his roll, the which he with trembling and haste catched up, and put it into his bosom. But who can tell how joyful this man was when he had gotten his roll again? For this roll was the assurance of his life, and acceptance at the desired haven. Therefore he laid it up in his bosom, gave thanks to God for directing his eye to the place where it lay, and with joy and tears betook himself again to his journey. But O how nimbly did he go up the rest of the hill! Yet before he got up, the sun went down upon Christian; and this made him again recall the vanity of his sleeping to his remembrance; and thus he again began to condole with himself: Oh thou sinful sleep! how for thy sake am I like to be benighted in my journey! I must walk without the sun, darkness must cover the path of my feet, and I must hear the noise of the doleful creatures, because of my sinful sleep! Now also he remembered the story that Mistrust and Timorous told him of, how they were frighted with the sight of the lions. Then said Christian to himself again, These beasts range in the night for their prey; and if they should meet with me in the dark, how should I shift them? how should I escape being by them torn in pieces? Thus he went on his way. But while he was bewailing his unhappy miscarriage, he lift up his eyes, and behold there was a very stately palace before him, the name of which was Beautiful, and it stood by the highway-side.
-
+-j-
+やっと休憩小屋に着くと、クリスチャンはその場にへたりこんで泣いた。だが、しばらくのちに（神のみこころによって）悲しげに椅子の下に目線をやった。そこに巻物があった。彼はふるえながら急いで拾い、ふところにしまった。巻物が見つかってどんなに喜んだことか。この巻物はいのちの保証であり、望みの天における通行証なのだ。彼は顔を上げて神に感謝した。喜びの涙にむせびながら旅を再開した。足取り軽く山を駆け上がった。ところが、太陽がだんだんと沈んできた。改めて時間を無駄にしたことを思い知らされるのだった。それでまた彼は嘆き始めた。ああ、お前は眠りこけて罪を犯した！ 真っ暗になったらどうなるのだろう！ 太陽なしで歩かなくては。自分の罪のせいで、闇が足元を覆い、動物の物悲しい鳴き声を聞かなくてはならないのだ！ また、〈臆病〉と〈不信〉が聞かせた話が思い出され、獅子を想像すると身震いした。クリスチャンはひとり言を言った。「獅子どもが餌を探して歩き回るのは夜だ。暗闇の中で見つかったらどうやって逃れよう。ばらばらに食いちぎられずに逃げられるだろうか」。不幸な過ちを嘆きながら先に進んでいたが、ふと目を上げると、前方に立派な邸宅が見えた。道沿いに建っているその邸宅の名前は〈美し〉といった。
+-e-
 So I saw in my dream that he made haste, and went forward, that if possible he might get lodging there. Now before he had gone far, he entered into a very narrow passage, which was about a furlong off the Porter’s lodge, and looking very narrowly before him as he went, he espied two lions in the way. Now, thought he, I see the dangers that Mistrust and Timorous were driven back by. (The lions were chained, but he saw not the chains.) Then he was afraid, and thought also himself to go back after them; for he thought nothing but death was before him. But the Porter at the lodge, whose name is Watchful, perceiving that Christian made a halt, as if he would go back, cried unto him, saying, Is thy strength so small? Mark 4:40. Fear not the lions, for they are chained, and are placed there for trial of faith where it is, and for discovery of those that have none: keep in the midst of the path, and no hurt shall come unto thee.
-
+-j-
+私が夢の中で見ていると、クリスチャンはそこで宿を借りられるかもしれないと急いだ。しばらく進むと狭い道に入った。あと百メートルも歩けば守衛の詰所に着く。ところが、狭い道の途中で二頭の獅子に出くわした。不信と臆病が引き返した危険な場所というのはここのことだな、と彼は思った。（獅子は鎖に繋がれていたが、暗くて見えなかった。）彼は足が震え、自分も引き返そうかと考えた。目の前にあるのはまさしく死だ。ところが、詰所の守衛が気づいた。守衛の名前は〈慎重〉といった。慎重はクリスチャンが立ち止まって引き返そうとしているのに気づいて、大声で呼びかけた。「あなたの力はそんなにも小さいのですか(マルコ4:40)。獅子を恐れてはなりません。鎖に繋いであります。信仰を試すため、また獅子が手出しできないことをわからせるために、そこに置かれているのです。道の真ん中をお歩きなさい。傷つけられることはありません」
+-e-
 Then I saw that he went on, trembling for fear of the lions, but taking good heed to the directions of the Porter; he heard them roar, but they did him no harm. Then he clapped his hands, and went on till he came and stood before the gate where the Porter was. Then said Christian to the Porter, Sir, what house is this? and may I lodge here to-night? The Porter answered, This house was built by the Lord of the hill, and he built it for the relief and security of pilgrims. The Porter also asked whence he was, and whither he was going.
-
+-j-
+クリスチャンはおびえつつも守衛の言うとおり真ん中を歩いた。獅子たちはうなり声をあげたが、危害は加えなかった。クリスチャンは手を叩きながら歩き、守衛のいる門の前に着いた。クリスチャンは守衛に言った。「このお屋敷は何でしょうか。一晩ここで泊めていただけませんか」。守衛は答えた。「この屋敷は、巡礼者の安全と休息のために主がお建てになったものです。あなたはどこから来て、どこに向かっておられるのですか」
+-e-
 CHR. I am come from the city of Destruction, and am going to Mount Zion: but because the sun is now set, I desire, if I may, to lodge here to-night.
-
+-j-
+クリスチャン「滅びの町から来ました。シオンの山に向かっております。日がもう沈んでいるので、よろしければ一晩泊めていただきたいのです」
+-e-
 PORT. What is your name?
-
+-j-
+守衛「お名前は何とおっしゃいますか」
+-e-
 CHR. My name is now Christian, but my name at the first was Graceless: I came of the race of Japheth, whom God will persuade to dwell in the tents of Shem. [Gen. 9:27.]
-
+-j-
+クリスチャン「私の名前は今はクリスチャンです。が、最初は〈恵みなし〉という名前でした。私は、神がセムの天幕に住まうようにと祝福したヤペテの子孫です(創世記9:27)」
+-e-
 PORT. But how does it happen that you come so late? The sun is set.
-
+-j-
+守衛「どうしてこれほど遅くなったのですか。もう日が暮れましたが」
+-e-
 CHR. I had been here sooner, but that, wretched man that I am, I slept in the arbor that stands on the hill-side! Nay, I had, notwithstanding that, been here much sooner, but that in my sleep I lost my evidence, and came without it to the brow of the hill; and then feeling for it, and not finding it, I was forced with sorrow of heart to go back to the place where I slept my sleep, where I found it; and now I am come.
-
+-j-
+クリスチャン「もっと早く着くはずでした。ところが、悪を犯しました。山の中腹にある休憩小屋で眠りこけてしまったのです！ いえ、それだけならまだこんなに遅くならなかったのですが、眠っているうちに大切な証書を落としてしまい、そのまま山頂まで登りました。それから証書をなくしたことに気づき、悲しくもそれを取りに小屋に戻らざるをえませんでした。それからやっと来ました」
+-e-
 PORT. Well, I will call out one of the virgins of this place, who will, if she likes your talk, bring you in to the rest of the family, according to the rules of the house. So Watchful the Porter rang a bell, at the sound of which came out of the door of the house a grave and beautiful damsel, named Discretion, and asked why she was called.
+-j-
+守衛「さようですか。それなら、屋敷にいる乙女のひとりをここに呼びましょう。お話していただいて彼女が好意を持てば、他の家族の者にも会えることになっております。それがこの屋敷のおきてです」
 
+慎重という名の守衛がドアベルを鳴らすと、かしこまった雰囲気の美しい乙女が門に来た。名前を〈分別〉といった。彼女は「どうしたのですか」と尋ねた。
+-e-
 The Porter answered, This man is on a journey from the city of Destruction to Mount Zion; but being weary and benighted, he asked me if he might lodge here to-night: so I told him I would call for thee, who, after discourse had with him, mayest do as seemeth thee good, even according to the law of the house.
-
+-j-
+守衛は答えた。「この方は滅びの町からシオンの山へと旅しておられます。ところが、暗くなりましたし疲れもありますから、今晩ここに泊めてもらえないか、とおっしゃっています。それであなたをお呼びしました。このお屋敷のおきてのとおりに、彼とお話をしていただき、あなたのお気持ちのとおりにしていただこう、と彼に申しました」
+-e-
 Then she asked him whence he was, and whither he was going; and he told her. She asked him also how he got into the way; and he told her. Then she asked him what he had seen and met with in the way, and he told her. And at last she asked his name. So he said, It is Christian; and I have so much the more a desire to lodge here to-night, because, by what I perceive, this place was built by the Lord of the hill for the relief and security of pilgrims. So she smiled, but the water stood in her eyes; and after a little pause she said, I will call forth two or three more of the family. So she ran to the door, and called out Prudence, Piety, and Charity, who, after a little more discourse with him, had him into the family; and many of them meeting him at the threshold of the house, said, Come in, thou blessed of the Lord; this house was built by the Lord of the hill on purpose to entertain such pilgrims in. Then he bowed his head, and followed them into the house. So when he was come in and sat down, they gave him something to drink, and consented together that, until supper was ready, some of them should have some particular discourse with Christian, for the best improvement of time; and they appointed Piety, Prudence, and Charity to discourse with him: and thus they began.
+-j-
+分別は彼に、どこから来てどこへ行こうとしているのか聞いた。また、どうしてこの道を志したのかを聞いた。さらに道中で何を見たかを聞いた。彼は逐一答えた。最後に、彼の名前を聞いた。「私はクリスチャンです。今晩ここに泊めていただきたいのです。ここは、主が巡礼者の休息と安全のために建てたものだと伺ったものですから」。彼女は微笑んだが、目には水がたまっていた（？）。少し間を置いて、彼女は言った。
+
+「」
 
 PIETY. Come, good Christian, since we have been so loving to you as to receive you into our house this night, let us, if perhaps we may better ourselves thereby, talk with you of all things that have happened to you in your pilgrimage.
 

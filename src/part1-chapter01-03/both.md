@@ -249,4 +249,4 @@ CHR. Sir, what think you? Is there any hope? May I now go back, and go up to the
 -e-
 EVAN. Then said Evangelist to him, Thy sin is very great, for by it thou hast committed two evils: thou hast forsaken the way that is good, to tread in forbidden paths. Yet will the man at the gate receive thee, for he has good-will for men; only, said he, take heed that thou turn not aside again, lest thou "perish from the way, when his wrath is kindled but a little." [Psalm 2:12.]
 -j-
-伝道者「あなたの罪は確かに大きい。二つの悪を犯したからです。あなたは、良い道を捨て、さらに禁じられた道を足を踏み入れました。しかし、門の守衛はあなたを受け入れてくれるでしょう。彼は優しい人だから。ただ、二度と道を外さないように気をつけなさい。『さもないと、主は怒って、あなたを道で滅ぼされるであろう。その憤りがすみやかに燃えるからである』（詩篇2:12）」
+伝道者「あなたの罪は確かに大きい。二つの悪を犯したからです。あなたは、良い道を捨て、さらに禁じられた道に足を踏み入れました。しかし、門の守衛はあなたを受け入れてくれるでしょう。彼は優しい人だから。ただ、二度と道を外さないように気をつけなさい。『さもないと、主は怒って、あなたを道で滅ぼされるであろう。その憤りがすみやかに燃えるからである』（詩篇2:12）」
