@@ -264,9 +264,13 @@ Then I saw in my dream, that on the morrow he got up to go forward, but they des
 「あなたがそこに行かれたら、そこから天の都の門が見えるかもしれません。そこに住む羊飼いたちが見せてくれるでしょう」
 -e-
 Now he bethought himself of setting forward, and they were willing he should. But first, said they, let us go again into the armory. So they did; and when he came there, they harnessed him from head to foot with what was of proof, lest perhaps he should meet with assaults in the way. He being therefore thus accoutred, walked out with his friends to the gate; and there he asked the Porter if he saw any pilgrim pass by. Then the Porter answered, Yes.
-
+-j-
+さて、クリスチャンはそろそろ旅立とうと考え、家族たちも同意した。「その前に」と家族は言った。「もう一度、武器庫にお寄りください」。武器庫に入ると、彼らは一式の装備品をクリスチャンに渡した。道中で攻撃に見舞われても大丈夫なように、頭から足まで防具がひと揃い用意された。防具を身につけると、クリスチャンは家族たちと一緒に門まで歩いた。クリスチャンは守衛に、ここに巡礼者が通ったかと尋ねた。守衛は「はい」と答えた。
+-e-
 CHR. Pray, did you know him? said he.
-
+-j-
+クリスチャン「その人のことをご存知ですか」
+-e-
 PORT. I asked his name, and he told me it was Faithful.
 
 CHR. O, said Christian, I know him; he is my townsman, my near neighbor; he comes from the place where I was born. How far do you think he may be before?
@@ -274,3 +278,11 @@ CHR. O, said Christian, I know him; he is my townsman, my near neighbor; he come
 PORT. He is got by this time below the hill.
 
 CHR. Well, said Christian, good Porter, the Lord be with thee, and add to all thy plain blessings much increase for the kindness that thou hast showed me.
+-j-
+守衛「お名前を尋ねると、〈忠実〉とおっしゃいました」
+
+クリスチャン「ああ、その方なら存じております。故郷で、近所におられました。私の生まれた町から来られたのでしょう。今どのあたりにおられると思いますか」
+
+守衛「今頃は、この丘のふもとに着いているでしょう」
+
+クリスチャン「そうですか。守衛さん、主があなたと共におられますように。あなたが私に親切にしてくださったので、その報いにまったき祝福がますます豊かにありますように」
