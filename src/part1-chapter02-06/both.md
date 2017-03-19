@@ -1,13 +1,13 @@
-# (十一) 謙遜の谷とアポリュオン
+# (十一) へりくだりの谷とアポリュオン
 -e-
 [The Valley of Humiliation and Apollyon]
 Then he began to go forward; but Discretion, Piety, Charity, and Prudence would accompany him down to the foot of the hill. So they went on together, reiterating their former discourses, till they came to go down the hill. Then said Christian, As it was difficult coming up, so, so far as I can see, it is dangerous going down. Yes, said Prudence, so it is; for it is a hard matter for a man to go down into the valley of Humiliation, as thou art now, and to catch no slip by the way; therefore, said they, we are come out to accompany thee down the hill. So he began to go down, but very warily; yet he caught a slip or two.
 -j-
-それからクリスチャンは先に進んだ。〈分別〉、〈思慮〉、〈敬虔〉、〈慈愛〉は丘のふもとまで同伴した。一行は丘を下りながら、前と同じように繰り返し話した。クリスチャンは言った。「登りのときも困難でしたから、見る限り、下りも危険です」。「そうです」と分別が答えた。〈謙遜〉の谷にまで下るのは困難ですから、あなたが今そうであるように、すべらないようにお気をつけください。私たちはふもとまではご一緒しますから」それで、彼は用心しながら下った。それでも一度か二度は滑って転んだ。
+それから、クリスチャンは先に進み始めた。〈分別〉、〈思慮〉、〈敬虔〉、〈慈愛〉の四人が丘のふもとまで同伴した。一行は丘を下りながら、前と同じように繰り返し話した。クリスチャンはこわごわと言った。「登るときも大変でしたが、こうして見ると、下りも危険ですね」。「そうです」と分別が答えた。「ふもとの〈へりくだりの谷〉に着くまではご覧のとおり大変です。すべらないようにお気をつけください。私たちはふもとまでご一緒しますから」。彼は用心しながら下ったが、それでも一度か二度はすべってころんだ。
 -e-
 Then I saw in my dream, that these good companions, when Christian was got down to the bottom of the hill, gave him a loaf of bread, a bottle of wine, and a cluster of raisins; and then he went on his way,
 -j-
-私が夢の中で見てると、この良き同伴者たちは、クリスチャンが丘のふもとにまで来ると、パンとワインと干しぶどうを手渡した。ここで彼らとお別れした。
+私が夢の中で見てると、一行は丘にふもとに着いた。この良き同伴者たちは、パンとワインと干しぶどうをクリスチャンに手渡した。ここでクリスチャンとお別れした。
 -e-
 "Whilst Christian is among his godly friends,
 Their golden mouths make him sufficient mends
@@ -22,11 +22,11 @@ He’s clad with northern steel from top to toe."
 -e-
 But now, in this valley of Humiliation, poor Christian was hard put to it; for he had gone but a little way before he espied a foul fiend coming over the field to meet him: his name is Apollyon. Then did Christian begin to be afraid, and to cast in his mind whether to go back, or to stand his ground. But he considered again, that he had no armor for his back, and therefore thought that to turn the back to him might give him greater advantage with ease to pierce him with his darts; therefore he resolved to venture and stand his ground: for, thought he, had I no more in mine eye than the saving of my life, it would be the best way to stand.
 -j-
-だが、謙遜の谷に着くと、あわれなクリスチャンはそれを着ているのが困難になった？？少し進んだところで、道の向こうから悪臭ただよう友が来たのだ。名前はアポリュオン（破壊者）といった。クリスチャンは恐れ始めた。引き返そうかという考えが頭によぎった。その場で立ち尽くした。だが、思い直した。彼の背面には武具を身につけていない。だから、背中を見せて引き返すと、彼の矢で打たれる隙を与えかねない。勇気をもって踏みとどまることに決め、地を踏みしめた。このいのちを救うより他に大切なことはないのだから、踏みとどまるのが最善だと彼は考えた。
+だが、へりくだりの谷を歩いていると、あわれなクリスチャンは困難に出会った。少し進んだところで、道の向こうからひどい悪臭をはなつ友が来たのだ。名前はアポリュオン（破壊者）といった。クリスチャンはおびえた。引き返そうかという考えが頭によぎった。その場で立ちすくんだ。だが、思い直した。彼の背面は武具を身につけていない。だから、背中を見せて引き返すと、奴の矢で打たれる隙を与えかねない。勇気をもって踏みとどまることに決め、足に力をこめた。このいのちを救うより他に大切なことはないのだから、踏みとどまるのが最善だと、クリスチャンは考えた。
 -e-
 So he went on, and Apollyon met him. Now the monster was hideous to behold: he was clothed with scales like a fish, and they are his pride; he had wings like a dragon, and feet like a bear, and out of his belly came fire and smoke; and his mouth was as the mouth of a lion. When he was come up to Christian, he beheld him with a disdainful countenance, and thus began to question him.
 -j-
-それで、先に進み、破壊者と対面した。見るも恐ろしい怪物だった。彼は魚のような鱗に覆われていた。それが彼の自慢だった。竜のような翼と、熊のような足。腹からは火と煙か上っていた。口は獅子の口のようだった。彼がクリスチャンに近づくと、見下すような目つきで問い出した。
+それで、先に進み、アポリュオンと対面した。見るも恐ろしい怪物だった。彼は魚のような鱗に覆われていた。それが彼の自慢だった。竜のような翼と、熊のような足。腹からは火と煙か上っていた。口は獅子の口のようであった。彼がクリスチャンに近づくと、見下すような目つきで問いを発した。
 -e-
 APOL. Whence came you, and whither are you bound?
 
@@ -40,9 +40,9 @@ CHR. I was, indeed, born in your dominions, but your service was hard, and your 
 
 クリスチャン「滅びの町から参りました。そこはあらゆる悪の掃き溜めでした。そして、シオンの町に向かっています」
 
-アポリュオン「なるほど。じゃあお前は私の臣民だ。その国は私のものだからだ。私はその国の王子であり、神だ。だが、どういうわけでお前は王から逃げ出したのか。お前が私もっと仕えることを希望したのでなかったら、お前をいまここで地に打ち付けることができる？？
+アポリュオン「なるほど。ではお前は私の臣民だ。その国は私のものだからだ。私はその国の王子であり、神でもある。だが、どういうわけでお前は王から逃げ出したのか。私への奉仕にもっと精を出すためか。もしそうでないなら、お前をいまここで地に打ち付けてやる」
 
-クリスチャン「私は確かにあなたの支配する国に生まれましたが、あなたの仕事は労苦ばかりで、報酬は人が行きていけないものでした。罪の対価は死だからです。（ローマ6:23）ですから、何年も経つと、思慮深い人がそうするように、私は自分を修理できるのではないかと方法を探しました？？
+クリスチャン「私は確かにあなたの支配する国に生まれましたが、あなたの与える仕事は労苦ばかりで、その賃金はそれによって人が生きられるようなものではありませんでした。罪の対価は死だからです（ローマ6:23）。ですから、私は大人になってから、思慮深い人がそうするように、善く生きるための道を探しました」
 -e-
 APOL. There is no prince that will thus lightly lose his subjects, neither will I as yet lose thee; but since thou complainest of thy service and wages, be content to go back, and what our country will afford I do here promise to give thee.
 
@@ -56,17 +56,17 @@ APOL. Thou didst the same by me, and yet I am willing to pass by all, if now tho
 
 CHR. What I promised thee was in my non-age: and besides, I count that the Prince, under whose banner I now stand, is able to absolve me, yea, and to pardon also what I did as to my compliance with thee. And besides, O thou destroying Apollyon, to speak truth, I like his service, his wages, his servants, his government, his company, and country, better than thine; therefore leave off to persuade me farther: I am his servant, and I will follow him.
 -j-
-アポリュオン「臣民をこうも簡単に去らせる君主はおるまい。だからお前を簡単に去らせるわけにはいかない。お前の仕事と報酬に不満があるのなら、安心して帰るがよい。国がお前にもっと豊かに与えることをここで約束する」
+アポリュオン「臣民をこうも簡単に去らせる君主はおるまい。だから、お前を簡単に去らせるわけにはいかない。お前の仕事と賃金に不満があるのなら、安心して帰るがよい。わが国がお前にもっと豊かに与えることをここで約束しよう」
 
 クリスチャン「ですが、もう私は別の方、王の王たる方にお仕えしています。それなのにあなたと一緒に帰るのは、はたして正しいことでしょうか」
 
-アポリュオン「お前が行ったことはことわざにもあるとおり『悪いことを変えたらますます悪くなった』。だが、主のしもべを名乗る者にはよくあることだが、しばらくのちにつまずいて、結局私のところに戻ってくるのだ。お前もそうするがよい。すべてが丸く収まる。
+アポリュオン「お前のしたことは、『悪いことを変えたらますます悪くなった』ということわざどおりになる。だが、主のしもべを名乗る者にはよくあることだが、しばらくのちにつまずいて、どうせ私のところに戻ってくるのだ。お前もそうするがよい。すべてが丸く収まる」
 
-クリスチャン私はその方に信仰をささげ、忠誠を誓いました。どうしてその誓いを捨てて、裏切り者として処刑されないでしょうか？？
+クリスチャン「私はその方に信仰をささげ、忠誠を誓いました。その誓いを捨てるなら、私は裏切り者として処刑されても仕方ありません」
 
 アポリュオン「お前は私に対しても同じことをしているのだ。だが、もし思い直して帰って来るなら、すべてを水に流そう」
 
-クリスチャン私があなたに約束したのは、まだ物心もつかない時でした。それに、私が今お仕えしてきる君主は、私をゆるしてくださいます。私がかつてあなたに従って行ったことについて放免してくださいます。それに、ああ、破滅をもたらすアポリュオンよ、真実を申しますが、私は主の仕事、報酬、しもべたち、ご支配、同志、御国をあなたのそれよりも愛しています。ですから、もうこれ以上説き伏せようとするのはやめてください。私は主のしもべです。主に従います。
+クリスチャン「私があなたに約束したのは、まだ物心もつかない時でした。それに、私が今お仕えしてきる主君は、私をゆるしてくださいます。私がかつてあなたに従って犯した過ちを放免してくださいます。それに、ああ、破滅をもたらすアポリュオンよ、真実を申しますが、私は主の仕事、報酬、しもべたち、ご支配、同志、御国を、あなたのそれよりも愛しています。ですから、もうこれ以上説き伏せようとするのはやめてください。私は主のしもべです。主に従います」
 -e-
 APOL. Consider again, when thou art in cool blood, what thou art like to meet with in the way that thou goest. Thou knowest that for the most part his servants come to an ill end, because they are transgressors against me and my ways. How many of them have been put to shameful deaths! And besides, thou countest his service better than mine; whereas he never yet came from the place where he is, to deliver any that served him out of their enemies’ hands: but as for me, how many times, as all the world very well knows, have I delivered, either by power or fraud, those that have faithfully served me, from him and his, though taken by them! And so will I deliver thee.
 
@@ -76,13 +76,13 @@ APOL. Thou hast already been unfaithful in thy service to him; and how dost thou
 
 CHR. Wherein, O Apollyon, have I been unfaithful to him?
 -j-
-アポリュオン「考え直せ。冷静になれば、お前が行こうとしている道がお前にふさわしいかどうかわかるだろう。おまえは知っているはずだ。あの者のしもべたちの多くが無残な終わりを迎えていることを。彼らは私と私の道を裏切ったからそうなったのだ。どれほど多くの者たちが目も当てられない死に方をしたことか！それだけでない。お前はあの者の仕事を私の仕事よりも良いと考えているようだが、あの者はしもべたちを敵の手から救うために自分のいる場所から降りてきたことがない。だが、私はどうだ。世界中がよく知っている。あの者によって連れ去られた私の忠実なしもべたちを、力や嘘によって何度救ってきたことか！だから、お前のことも救ってやろう。
+アポリュオン「考え直せ。冷静になれば、お前が行こうとしている道がお前にふさわしいかどうかわかるだろう。おまえは知っているはずだ。あの者のしもべたちの多くが無残な終わりを迎えていることを。彼らは私と私の道を裏切ったからそうなったのだ。どれほど多くの者たちが目も当てられない死に方をしたことか！ それだけでない。お前はあの者の仕事を私の仕事よりも良いと考えているようだが、あの者はしもべたちを敵の手から救うために自分のいる場所から降りてきたためしがない。だが、私はどうだ。世界中がよく知っている。あの者によって連れ去られた私の忠実なしもべたちを、力や嘘によって何度救ってきたことか！ だから、お前のことも救ってやろう」
 
-クリスチャン「主が今すぐに彼らを救ってくださらないのは、彼らが終わりまで忠実であるかどうか、主への愛を試すためです。あなたが言う目も当てられない死に方は、彼らにとって最も栄光あることです。というのも、今すぐに救われてしまったら、もうそれ以上何も望む必要がありません。栄光を待ち望むからこそ、御子が御使いたちの栄光の中で来られるときに栄光を受けられます。
+クリスチャン「主が今すぐに彼らを救ってくださらないのは、彼らが終わりまで忠実であるかどうか、主への愛を試すためです。あなたが言う無残な死に方は、彼らにとって最高の栄誉です。というのも、今すぐに救われてしまったら、もうそれ以上何も望む必要がありません。栄光を待ち望むからこそ、御子が御使いたちの栄光の中で来られるときに栄誉を受けられます」
 
-アポリュオン「お前はもうすでにあの者に仕えるにおいて不忠実にしてきたではないか。それでどうして報酬を受け取れるなどと思うのか。
+アポリュオン「お前はもうすでにあの者に不忠実にしてきたではないか。それでどうして自分が報酬を受け取れるなどと思うのか」
 
-クリスチャン「アポリュオンよ、私のどこが不忠実だったというのか。
+クリスチャン「アポリュオンよ、私のどこが不忠実だったというのですか」
 -e-
 APOL. Thou didst faint at first setting out, when thou wast almost choked in the gulf of Despond. Thou didst attempt wrong ways to be rid of thy burden, whereas thou shouldst have stayed till thy Prince had taken it off. Thou didst sinfully sleep, and lose thy choice things. Thou wast almost persuaded also to go back at the sight of the lions. And when thou talkest of thy journey, and of what thou hast seen and heard, thou art inwardly desirous of vainglory in all that thou sayest or doest.
 
@@ -94,19 +94,25 @@ CHR. Apollyon, beware what you do, for I am in the King’s highway, the way of 
 
 APOL. Then Apollyon straddled quite over the whole breadth of the way, and said, I am void of fear in this matter. Prepare thyself to die; for I swear by my infernal den, that thou shalt go no farther: here will I spill thy soul. And with that he threw a flaming dart at his breast; but Christian had a shield in his hand, with which he caught it, and so prevented the danger of that.
 -j-
-アポリュオンお前は〈失意の沼〉に沈みそうになったとき、もうさっそく望みを失いかけたではないか。お前は背中の重荷を取り去るために間違った道に行こうとした。そこに行っていたなら、お前の君主がそれを取り除くまで留まるはずだった？？お前は罪深い惰眠を犯し、お前の選択で損失を招いた。お前は獅子を目の前にして引き返そうとさえした。お前が旅で見聞きしたことを話すとき、自分の話や行いの中にむなしく自分を誇ろうとする思いが内にあった。
+アポリュオン「お前は〈失意の沼〉に沈みそうになったとき、もうさっそく望みを失いかけたではないか。お前は背中の重荷を取り去るために間違った道に行こうとした。お前の主君がそれを取り除くまで待っているべきだったのに。また、お前は罪深い惰眠をし、みずからの選択で損失を招いた。お前は獅子を前に引き返そうとさえした。お前が旅で見聞きしたことを話すとき、自分の話や行いの中にむなしく自分を誇ろうとする思いが内にあった」
 
-クリスチャン「それはみな真実です。そればかりか他にもまだ言われていないこともあります。ですが、私が仕える、褒めたたえている主君はあわれみ深い方ですから、いつでもゆるしてくださいます。それに、これらの咎は、あなたの国に私を引き留めようとする力です。そこで私はそれらを吸い、その下で嘆き悲しみ、残念になり、私の主君からの恩赦をいただきました。
+クリスチャン「それはみな真実です。そればかりか他にもまだ言われていないこともあります。ですが、私が仕える、褒めたたえられるべき主君はあわれみ深い方ですから、いつでもゆるしてくださいます。それに、これらの咎は、あなたの国に私を引き留めようとする力です。あなたの国で私はその力に支配され、嘆き悲しみ、心から悔いました。そして、今は私の主君からの恩赦をいただきました」
 
-アポリュオン「するとアポリュオンは忌々しそうに唾棄し、「私はこの君主の敵だ。彼の人格も法も民も憎んでいる。私が来たのはお前に敵対するためだ。
+するとアポリュオンはいまいましそうに唾棄した。
 
-クリスチャン「アポリュオンよ、あなたが行なっていることに注意なさい。私は王の道、聖なる道を歩んでいるのです。ですから、気をつけなさい。
+アポリュオン「私はこの君主の敵だ。彼の人格も法も民も憎んでいる。私が来たのはお前に敵対するためだ」
 
-アポリュオン　するとアポリュオンは道幅いっぱいに立ちはだかり、言った。「私にはこんなものは怖くない」。死ぬ用意をするがよい。地獄の穴に誓うが、お前はこの先に進むことはない。ここでお前の魂を流す？からだ。そう言うと、アポリュオンは燃える火の矢を胸から取り出して放った。しかし、クリスチャンは手に持っていた盾で矢を受けたので、害を受けなかった。
+クリスチャン「アポリュオンよ、あなたが行なっていることに注意なさい。私は王の道、聖なる道を歩んでいるのです。ですから、気をつけなさい」
+
+するとアポリュオンは道幅いっぱいに立ちはだかり、言った。
+
+アポリュオン「私にはそんなものは怖くない。死ぬ用意をするがよい。地獄の穴に誓うが、お前はこの先に進むことはない。ここでお前の魂を殺すからだ」
+
+そう言うやいなや、アポリュオンは燃える火の矢を胸から取り出して放った。しかし、クリスチャンは手に持っていた盾で矢を受けたので、害を受けなかった。
 -e-
 Then did Christian draw, for he saw it was time to bestir him; and Apollyon as fast made at him, throwing darts as thick as hail; by the which, notwithstanding all that Christian could do to avoid it, Apollyon wounded him in his head, his hand, and foot. This made Christian give a little back: Apollyon, therefore, followed his work amain, and Christian again took courage, and resisted as manfully as he could. This sore combat lasted for above half a day, even till Christian was almost quite spent: for you must know, that Christian, by reason of his wounds, must needs grow weaker and weaker.
 -j-
-クリスチャンは今度は自分の番だとばかりに剣を抜いた。アポリュオンはあらん限りの素早さであられのように大量の矢を放った。クリスチャンは懸命に避けようとしたが、頭と手足に矢を受けてしまった。クリスチャンは少したじろいで後退した。アポリュオンはそれで油断し、クリスチャンは力を取り戻して全力で抵抗した。この激しい攻防は半日以上に及んだ。クリスチャンは消耗しきっていた。クリスチャンは受けた傷のせいでますます弱ってきた。
+クリスチャンは反撃しようと剣を抜いた。アポリュオンは目にもとまらぬ速さであられのように大量の矢を放った。クリスチャンは懸命に避けようとしたが、頭と手足に矢を受けてしまった。クリスチャンはふらつき、数歩後ろにさがった。アポリュオンはそれで油断し、クリスチャンは力を取り戻して全力で抵抗した。この激しい攻防は半日以上に及んだ。クリスチャンは消耗しきっていた。クリスチャンは受けた傷のせいでますます弱ってきた。
 -e-
 Then Apollyon, espying his opportunity, began to gather up close to Christian, and wrestling with him, gave him a dreadful fall; and with that Christian’s sword flew out of his hand. Then said Apollyon, I am sure of thee now: and with that he had almost pressed him to death, so that Christian began to despair of life. But, as God would have it, while Apollyon was fetching his last blow, thereby to make a full end of this good man, Christian nimbly reached out his hand for his sword, and caught it, saying, Rejoice not against me, O mine enemy: when I fall, I shall arise, [Mic. 7:8]; and with that gave him a deadly thrust, which made him give back, as one that had received his mortal wound. Christian perceiving that, made at him again, saying, Nay, in all these things we are more than conquerors, through Him that loved us. [Rom. 8:37.] And with that Apollyon spread forth his dragon wings, and sped him away, that Christian saw him no more. [James 4:7.]
 -j-
