@@ -3,7 +3,7 @@
 [The Valley of Humiliation and Apollyon]
 Then he began to go forward; but Discretion, Piety, Charity, and Prudence would accompany him down to the foot of the hill. So they went on together, reiterating their former discourses, till they came to go down the hill. Then said Christian, As it was difficult coming up, so, so far as I can see, it is dangerous going down. Yes, said Prudence, so it is; for it is a hard matter for a man to go down into the valley of Humiliation, as thou art now, and to catch no slip by the way; therefore, said they, we are come out to accompany thee down the hill. So he began to go down, but very warily; yet he caught a slip or two.
 -j-
-それから、クリスチャンは先に進み始めた。〈分別〉、〈思慮〉、〈敬虔〉、〈慈愛〉の四人が丘のふもとまで同伴した。一行は丘を下りながら、前と同じように繰り返し話した。クリスチャンはこわごわと言った。「登るときも大変でしたが、こうして見ると、下りも危険ですね」。「そうです」と分別が答えた。「ふもとの〈へりくだりの谷〉に着くまではご覧のとおり大変です。すべらないようにお気をつけください。私たちはふもとまでご一緒しますから」。彼は用心しながら下ったが、それでも一度か二度はすべってころんだ。
+それから、クリスチャンは先に進み始めた。〈分別〉、〈思慮〉、〈敬虔〉、〈慈愛〉の四人が丘のふもとまで同伴した。一行は丘を下りながら、前と同じように繰り返し話した。クリスチャンはこわごわと言った。「登るときも大変でしたが、こうして見ると、下りも危険ですね」。「そうです」と分別。「ふもとの〈へりくだりの谷〉に着くまではご覧のとおり大変です。すべらないようにお気をつけください。私たちはふもとまでご一緒しますから」。彼は用心しながら下ったが、それでも一度か二度はすべってころんだ。
 -e-
 Then I saw in my dream, that these good companions, when Christian was got down to the bottom of the hill, gave him a loaf of bread, a bottle of wine, and a cluster of raisins; and then he went on his way,
 -j-
@@ -14,15 +14,18 @@ Their golden mouths make him sufficient mends
 For all his griefs; and when they let him go,
 He’s clad with northern steel from top to toe."
 -j-
-クリスチャンがきよい友人たちといる間、
-友人たちの金の口が彼を癒やした。
-あらゆる嘆き悲しみを。
-お別れのとき、頭からつまさきまで、
-彼は鋼の武具を着せてもらった。
+きよらかな友人たちといる間
+その黄金の口により
+クリスチャンは休みを得た。
+あらゆる嘆き悲しみが
+その交わりで癒やされた。
+旅の続きに出るときに
+鋼の武具をいただいた。
+頭のてっぺんからつまさきまで。
 -e-
 But now, in this valley of Humiliation, poor Christian was hard put to it; for he had gone but a little way before he espied a foul fiend coming over the field to meet him: his name is Apollyon. Then did Christian begin to be afraid, and to cast in his mind whether to go back, or to stand his ground. But he considered again, that he had no armor for his back, and therefore thought that to turn the back to him might give him greater advantage with ease to pierce him with his darts; therefore he resolved to venture and stand his ground: for, thought he, had I no more in mine eye than the saving of my life, it would be the best way to stand.
 -j-
-だが、へりくだりの谷を歩いていると、あわれなクリスチャンは困難に出会った。少し進んだところで、道の向こうからひどい悪臭をはなつ友が来たのだ。名前はアポリュオン（破壊者）といった。クリスチャンはおびえた。引き返そうかという考えが頭によぎった。その場で立ちすくんだ。だが、思い直した。彼の背面は武具を身につけていない。だから、背中を見せて引き返すと、奴の矢で打たれる隙を与えかねない。勇気をもって踏みとどまることに決め、足に力をこめた。このいのちを救うより他に大切なことはないのだから、踏みとどまるのが最善だと、クリスチャンは考えた。
+だが、へりくだりの谷を歩いていると、あわれなクリスチャンは困難に出会った。少し進んだところで、道の向こうからひどい悪臭をはなつ悪魔が来たのだ。名前はアポリュオン（破壊者）といった。クリスチャンはおびえた。引き返そうかという考えが頭によぎった。その場で立ちすくんだ。だが、思い直した。彼の背面は武具を身につけていない。だから、背中を見せて引き返せば、奴の矢で打たれる隙を与えかねない。勇気をもって踏みとどまることに決め、足に力をこめた。このいのちを救うより他に大切なことはないのだから、踏みとどまるのが最善だと、クリスチャンは考えた。
 -e-
 So he went on, and Apollyon met him. Now the monster was hideous to behold: he was clothed with scales like a fish, and they are his pride; he had wings like a dragon, and feet like a bear, and out of his belly came fire and smoke; and his mouth was as the mouth of a lion. When he was come up to Christian, he beheld him with a disdainful countenance, and thus began to question him.
 -j-
@@ -112,17 +115,22 @@ APOL. Then Apollyon straddled quite over the whole breadth of the way, and said,
 -e-
 Then did Christian draw, for he saw it was time to bestir him; and Apollyon as fast made at him, throwing darts as thick as hail; by the which, notwithstanding all that Christian could do to avoid it, Apollyon wounded him in his head, his hand, and foot. This made Christian give a little back: Apollyon, therefore, followed his work amain, and Christian again took courage, and resisted as manfully as he could. This sore combat lasted for above half a day, even till Christian was almost quite spent: for you must know, that Christian, by reason of his wounds, must needs grow weaker and weaker.
 -j-
-クリスチャンは反撃しようと剣を抜いた。アポリュオンは目にもとまらぬ速さであられのように大量の矢を放った。クリスチャンは懸命に避けようとしたが、頭と手足に矢を受けてしまった。クリスチャンはふらつき、数歩後ろにさがった。アポリュオンはそれで油断し、クリスチャンは力を取り戻して全力で抵抗した。この激しい攻防は半日以上に及んだ。クリスチャンは消耗しきっていた。クリスチャンは受けた傷のせいでますます弱ってきた。
+クリスチャンは反撃しようと剣を抜いた。アポリュオンは目にもとまらぬ速さであられのように大量の矢を放った。クリスチャンは懸命に避けようとしたが、頭と手足に矢を受けてしまった。ふらつき、数歩後ろにさがった。アポリュオンはそれで油断し、クリスチャンは力を取り戻して全力で抵抗した。この激しい攻防は半日以上に及んだ。クリスチャンは消耗していた。受けた傷のせいでますます弱ってきた。
 -e-
 Then Apollyon, espying his opportunity, began to gather up close to Christian, and wrestling with him, gave him a dreadful fall; and with that Christian’s sword flew out of his hand. Then said Apollyon, I am sure of thee now: and with that he had almost pressed him to death, so that Christian began to despair of life. But, as God would have it, while Apollyon was fetching his last blow, thereby to make a full end of this good man, Christian nimbly reached out his hand for his sword, and caught it, saying, Rejoice not against me, O mine enemy: when I fall, I shall arise, [Mic. 7:8]; and with that gave him a deadly thrust, which made him give back, as one that had received his mortal wound. Christian perceiving that, made at him again, saying, Nay, in all these things we are more than conquerors, through Him that loved us. [Rom. 8:37.] And with that Apollyon spread forth his dragon wings, and sped him away, that Christian saw him no more. [James 4:7.]
 -j-
-そこでアポリュオンはチャンスを得てクリスチャンに詰め寄り、つかみかかってクリスチャンを投げ倒した。クリスチャンの握っていた剣は手から落ちてしまった。アポリュオンは言った。「お前はもう負けだ」。そしてとどめを刺そうとした。クリスチャンはいのちが消えかけた。しかし、神のみこころにより？、アポリュオンがこの善良な男のいのちを終わらせるために最後の一撃を喰らわせようとしたとき、クリスチャンはすばやく剣に手を伸ばし、つかんだ。「ああ、敵よ、私の敵となったことを喜ぶな。私は倒れてもまた起き上がる(ミカ7:8)。そして、アポリュオンに剣を突き刺した。アポリュオンはよろけた。致命傷を負ったのだ。クリスチャンはそうと知って再び立ち向かった。「いや、私たちは、これらすべてのことにあっても、圧倒的勝利者である。」ローマ8:37するとアポリュオンは竜の翼を広げて、飛び去った。クリスチャンはもう二度と彼を見なくなった。(ヤコブ4:7)
+そこでアポリュオンは隙を見てクリスチャンに詰め寄り、つかみかかってクリスチャンを投げ倒した。クリスチャンの握っていた剣は手から落ちてしまった。アポリュオンは勝ち誇った。「お前はもう負けだ」。そのままとどめを刺そうとした。クリスチャンはいのちが消えかけた。しかし、神の助けがあった。アポリュオンがこの善良な男のいのちを終わらせるために最後の一撃を喰らわせようとしたとき、クリスチャンはすばやく剣に手を伸ばし、つかんだ。「ああ、敵よ、私の仇となったことを喜ぶな。私は倒れてもまた起き上がる（ミカ7:8）」。アポリュオンに剣を突き刺した。アポリュオンはよろけた。致命傷を負ったのだ。クリスチャンはそうと知って再び立ち向かった。「いや、私たちは、これらすべてのことにあっても、圧倒的勝利者である（ローマ8:37）」。するとアポリュオンは竜の翼を広げて、飛び去った。クリスチャンはもう二度と彼を見なかった。（ヤコブ4:7）
 -e-
 In this combat no man can imagine, unless he had seen and heard, as I did, what yelling and hideous roaring Apollyon made all the time of the fight; he spake like a dragon: and on the other side, what sighs and groans burst from Christian’s heart. I never saw him all the while give so much as one pleasant look, till he perceived he had wounded Apollyon with his two-edged sword; then, indeed, he did smile, and look upward! But it was the dreadfullest sight that ever I saw.
 
 So when the battle was over, Christian said, I will here give thanks to him that hath delivered me out of the mouth of the lion, to him that did help me against Apollyon. And so he did, saying,
 -j-
-この戦闘で、恐ろしいうなり声と怒号を上げるアポリュオンがどんなふうに戦ったか、私のようにこの目で見た者でなければ誰も想像できまい。アポリュオンは竜のように話した。他方、クリスチャンの心からはどんなにため息とうめきが出たことか。クリスチャンが両刃の剣でアポリュオンを切りつけたときほど彼の喜ばしい表情を私は見たことがない。彼は笑みを浮かべ、紅潮した。だが、それは私が今まで見た最もおぞましい光景だった。それで、戦いが終わると、クリスチャンは言った。
+この戦いで、恐ろしいうなり声と怒号を上げるアポリュオンがどんなふうに戦ったか、私のようにこの目で見た者でなければ誰も想像できまい。アポリュオンは竜のように話した。他方、クリスチャンの心からはどんなため息とうめきが出たことか。クリスチャンが両刃の剣でアポリュオンを切りつけたときほど彼の喜ばしい表情を私は見たことがない。彼は笑みを浮かべ、紅潮した。だが、その戦いは私が今まで見た最もおぞましい光景だった。戦いが終わると、クリスチャンは言った。
+
+「私は、獅子の口から救い出してくださった主に、またアポリュオンとの戦いで助けてくださった主に感謝をささげよう」
+
+また、こうも言った。
+
 -e-
 "Great Beelzebub, the captain of this fiend,
 Designed my ruin; therefore to this end
@@ -133,10 +141,19 @@ By dint of sword, did quickly make him fly:
 Therefore to Him let me give lasting praise,
 And thank and bless his holy name always."
 -j-
-「私は、獅子の口から救い出してくださった主に、またアポリュオンとの戦いで助けてくださった主に感謝をささげよう」
-
-また、彼は言った。「強大なベルゼバブ、この地の支配者、私を滅ぼそうとする者。それゆえこの終わりに彼は彼をharness’d outを送った。彼は地獄の憎しみをもって激しく私と戦った。だが、さいわいなミカエルが私を助け、剣によって、彼をすたこらさっさと逃げさせた。それゆえ彼に私は永遠の賛美をささげ。彼の聖なる御名にいつも感謝と栄光をささげる」
+強大なるベルゼバブ
+悪魔の王は画策し
+彼を私に派遣した。
+彼は地獄の憎しみで
+激しく私と戦った。
+だがさいわいなミカエルの
+助けによって剣を得
+彼はすぐさま敗退した。
+私は神にいつまでも
+賛美と感謝をささげます。
+聖なる御名に栄光が
+世々とこしえにあるように。
 -e-
 Then there came to him a hand with some of the leaves of the tree of life, the which Christian took and applied to the wounds that he had received in the battle, and was healed immediately. He also sat down in that place to eat bread, and to drink of the bottle that was given him a little before: so, being refreshed, he addressed himself to his journey with his sword drawn in his hand; for he said, I know not but some other enemy may be at hand. But he met with no other affront from Apollyon quite through this valley.
 -j-
-それから、彼のところにいのちの木の葉が何枚か、手？で来た。クリスチャンはそれを手に取って、先の戦いで受けた傷にあてた。するとすぐに、傷は癒やされた。彼はまたその場所に座って、少し前にいただいたパンを食べ、飲み物を飲んだ。それで力を得て、旅を続けることにした。剣を手にさげ。彼は言った。「まだ他にも敵が近くにいるかもしれないだが、この谷ではもうアポリュオンの他には敵は現れなかった。
+それから、彼のところに手がおりてきて、数枚のいのちの木の葉が差し出された。クリスチャンはそれを取って、先の戦いで受けた傷にあてた。するとすぐに、傷は癒やされた。また彼はその場に座って、少し前にいただいたパンを食べ、飲み物を飲んだ。それで力を得て、旅を続けることにした。剣を手にさげ、彼は言った。「まだ他にも敵が近くにいるかもしれない」。だが、この谷ではアポリュオンの他に敵は現れなかった。
