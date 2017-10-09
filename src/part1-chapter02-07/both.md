@@ -72,9 +72,17 @@ So he went on, and called to him that was before; but he knew not what to answer
 Now morning being come, he looked back, not out of desire to return, but to see, by the light of the day, what hazards he had gone through in the dark. So he saw more perfectly the ditch that was on the one hand, and the quag that was on the other; also how narrow the way was which led betwixt them both. Also now he saw the hobgoblins, and satyrs, and dragons of the pit, but all afar off; for after break of day they came not nigh; yet they were discovered to him, according to that which is written, "He discovereth deep things out of darkness, and bringeth out to light the shadow of death." [Job 12:22.]
 朝になった。クリスチャンはなんとはなしに後ろを振り返った。引き返したいと思ったわけではない。だが見ると、太陽の光に照らされて、暗闇の中でわからなかったが通り過ぎた道がいかに危険だったかを思い知った。道の片側にある深い溝、その反対側にあるぬかるみ、それらにはさまれた狭い道がはっきり見えた。地獄の妖精、サテュラス、竜もはるか遠くに見えた。「（主が）暗やみの中から隠れた事どもをあらわし、暗やみを光に引き出し」（ヨブ12:22）たと書いてあるとおり、それらの光景ははっきり見えるところとなった。
 
-Now was Christian much affected with this deliverance from all the dangers of his solitary way; which dangers, though he feared them much before, yet he saw them more clearly now, because the light of the day made them conspicuous to him. And about this time the sun was rising, and this was another mercy to Christian; for you must note, that though the first part of the Valley of the Shadow of Death was dangerous, yet this second part, which he was yet to go, was, if possible, far more dangerous; for, from the place where he now stood, even to the end of the valley, the way was all along set so full of snares, traps, gins, and nets here, and so full of pits, pitfalls, deep holes, and shelvings-down there, that had it now been dark, as it was when he came the first part of the way, had he had a thousand souls, they had in reason been cast away; but, as I said, just now the sun was rising. Then said he, "His Candle shineth on my head, and by his light I go through darkness." [Job 29:3.]
+Now was Christian much affected with this deliverance from all the dangers of his solitary way; which dangers, though he feared them much before, yet he saw them more clearly now, because the light of the day made them conspicuous to him.
+クリスチャンはこの孤独で危険な道を歩みぬいた解放感で胸をなでおろした。道中では非常に恐ろしかった数々の危険が、太陽の光にさらされてはっきりと見えるようになっていた。
+And about this time the sun was rising, and this was another mercy to Christian; for you must note, that though the first part of the Valley of the Shadow of Death was dangerous, yet this second part, which he was yet to go, was, if possible, far more dangerous; for, from the place where he now stood, even to the end of the valley, the way was all along set so full of snares, traps, gins, and nets here, and so full of pits, pitfalls, deep holes, and shelvings-down there, that had it now been dark, as it was when he came the first part of the way, had he had a thousand souls, they had in reason been cast away; but, as I said, just now the sun was rising. Then said he, "His Candle shineth on my head, and by his light I go through darkness." [Job 29:3.]
+しかも、太陽がのぼったことはまた別の意味でも恵みであった。クリスチャンが今立っている場所から谷の終端まで道沿いに、落とし穴や罠や捕獲網がそこら中にあり、溝やくぼみや深い穴や落ち込む段差がそこかしこにあった。もしこれまで来た道のように暗闇の中を歩かなければならないとしたら、命がいくつあっても足りなかったにちがいない。だが、今は太陽が出ているのだ。クリスチャンはこう口にした。「彼のともしびがわたしの頭の上に輝き、彼の光によってわたしは暗やみを歩んだ。」（ヨブ29:3）
 
-In this light, therefore, he came to the end of the valley. Now I saw in my dream, that at the end of the valley lay blood, bones, ashes, and mangled bodies of men, even of pilgrims that had gone this way formerly; and while I was musing what should be the reason, I espied a little before me a cave, where two giants, Pope and Pagan, dwelt in old times; by whose power and tyranny the men whose bones, blood, ashes, etc., lay there, were cruelly put to death. But by this place Christian went without much danger, whereat I somewhat wondered; but I have learnt since, that Pagan has been dead many a day; and as for the other, though he be yet alive, he is, by reason of age, and also of the many shrewd brushes that he met with in his younger days, grown so crazy and stiff in his joints that he can now do little more than sit in his cave’s mouth, grinning at pilgrims as they go by, and biting his nails because he cannot come at them. So I saw that Christian went on his way; yet, at the sight of the old man that sat at the mouth of the cave, he could not tell what to think, especially because he spoke to him, though he could not go after him, saying, You will never mend, till more of you be burned. But he held his peace, and set a good face on it; and so went by, and catched no hurt. Then sang Christian,
+In this light, therefore, he came to the end of the valley. Now I saw in my dream, that at the end of the valley lay blood, bones, ashes, and mangled bodies of men, even of pilgrims that had gone this way formerly; and while I was musing what should be the reason, I espied a little before me a cave, where two giants, Pope and Pagan, dwelt in old times; by whose power and tyranny the men whose bones, blood, ashes, etc., lay there, were cruelly put to death.
+この光の中でクリスチャンはついに谷の終端に着いた。私が夢の中で見ていると、そこには血だまり、骨、灰、死体が散見された。以前にここを通った巡礼者たちのものだった。どうしてなのかとしばらく考えたが、すぐ近くに洞窟があるのを見つけた。そこに二人の巨人〈教皇〉と〈多神教徒〉がいにしえから住んでいたのだった。谷に散らばっている骨、血、灰などは、巨人たちの圧倒的な力によって無惨に殺された人々のものだった。
+But by this place Christian went without much danger, whereat I somewhat wondered; but I have learnt since, that Pagan has been dead many a day; and as for the other, though he be yet alive, he is, by reason of age, and also of the many shrewd brushes that he met with in his younger days, grown so crazy and stiff in his joints that he can now do little more than sit in his cave’s mouth, grinning at pilgrims as they go by, and biting his nails because he cannot come at them.
+けれども、その場所もクリスチャンは難なく通過した。私はいぶかしく思ったが、しかし後になってわかった。〈多神教徒〉はもうずいぶん前に死んでいた。〈教皇〉はかろうじて生きていたが、年老いているため、また若い頃に鋭い筆で何度も攻撃されたため、頭はもうろうとし関節は硬直して、洞窟の入り口で座っているのがやっとであった。巡礼者たちが通りかかるのを眺めては、もう襲撃する力がないため、悔しそうに爪を噛んでいるだけだった。
+So I saw that Christian went on his way; yet, at the sight of the old man that sat at the mouth of the cave, he could not tell what to think, especially because he spoke to him, though he could not go after him, saying, You will never mend, till more of you be burned. But he held his peace, and set a good face on it; and so went by, and catched no hurt. Then sang Christian,
+私は、クリスチャンが先に進むのを見ていた。洞窟の入り口に座っている老人は、何を考えているのかわからなかったが、クリスチャンを追うでもなくただ話しかけてきた。「お前は、自分の体が焼きつくされるまでは、救われることはない」。しかし、クリスチャンは自分の平和を保ち、毅然とした表情でいた。すぐ近くを通り過ぎたが、何も害を受けなかった。それから、クリスチャンは歌った。
 
 "O world of wonders, (I can say no less,)
 That I should be preserved in that distress
@@ -86,3 +94,16 @@ Yea, snares, and pits, and traps, and nets did lie
 My path about, that worthless, silly I
 Might have been catch’d, entangled, and cast down;
 But since I live, let Jesus wear the crown."
+世にもふしぎなことよ、と
+言うより他にありません
+ここで降りかかった苦しみと
+悩みの中で生かされて
+私を救ってくださった
+御手の大いなる祝福よ
+闇と悪魔と地獄と罪
+危険がおしよせる谷を歩み
+穴と溝と罠と網
+道行く私は功なく愚かで
+捕らえられ、足がもつれ、倒れそうになった。
+だが、私は生きている
+イエスに栄光の王冠あれ
