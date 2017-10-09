@@ -50,27 +50,27 @@ About the midst of this valley I perceived the mouth of hell to be, and it stood
 谷の中ごろで、私は地獄の口を見た。道のすぐそばに恐ろしい口を開けていた。クリスチャンはどうすればよいのかとたじろいだ。ときどき、炎と煙がバチバチとおぞましい音を立てて吹き出していた。（アポリュオンがおじ恐れたクリスチャンの剣に対してさえ、まるで意に介さぬようだった。）やむをえずクリスチャンは剣をしまい、別の武器を取り出した。〈すべての祈り〉である（エペソ6:18）。私は彼が大声で祈るのを聞いた。「ああ、主よ、お願いです。私の魂を救ってください」（詩篇116:4）。それからクリスチャンは先に進んだ。炎が伸びてきて今にも届きそうだった。また、おぞましい声が聞こえた。クリスチャンの周りをぐるぐると回っていて、今にも襲いかかってこの身を引き裂くのではないか、あるいは道端の泥のように踏みつけられるのではないかと感じさせた。
 This frightful sight was seen, and these dreadful noises were heard by him for several miles together; and coming to a place where he thought he heard a company of fiends coming forward to meet him, he stopped, and began to muse what he had best to do. Sometimes he had half a thought to go back; then again he thought he might be half-way through the valley. He remembered also, how he had already vanquished many a danger; and that the danger of going back might be much more than for to go forward. So he resolved to go on; yet the fiends seemed to come nearer and nearer. But when they were come even almost at him, he cried out with a most vehement voice, I will walk in the strength of the Lord God. So they gave back, and came no farther.
 この身震いするような光景とおぞましい大合唱が何マイルも続いた。しばらくして、ある場所に着くと、後方から友人たちが近づいて来ているような音が聞こえた気がした。友人が会いに来てくれたのだろうかと思い、彼は立ち止まった。どうしたらよいだろうかと思いあぐねた。すこし引き返そうかと思わないでもなかった。けれども、谷の半分は超えたかもしれない。彼は思い直した。多くの危険をすでに乗り越えてきたじゃないか。引き返すのは前に進むよりもずっと危険かもしれない。先に進もうと決心した。だが、友人がだんだん近づいているようだ。友人たちが今にも追いつきそうになったとき、彼は毅然と大声で、「私は主なる神の御力の中に歩む」と言った。すると、友人たちは引き返していった。もう追って来ることはなかった。
----
+
 One thing I would not let slip. I took notice that now poor Christian was so confounded that he did not know his own voice; and thus I perceived it. Just when he was come over against the mouth of the burning pit, one of the wicked ones got behind him, and stepped up softly to him, and whisperingly suggested many grievous blasphemies to him, which he verily thought had proceeded from his own mind. This put Christian more to it than any thing that he met with before, even to think that he should now blaspheme Him that he loved so much before. Yet if he could have helped it, he would not have done it; but he had not the discretion either to stop his ears, or to know from whence these blasphemies came.
-ひとつ、書き忘れてはならないことがある。私はこのあわれなクリスチャンがあまりに困惑していたので彼は自分の声を知らなかったことに注意を向けた。しかし私は気づいた。燃えさかる穴の口に対抗してoverしているちょうどその時、汚れた存在が彼の後ろにいた。忍び寄っていた。神を冒涜するひどい言葉を彼にささやいていた。彼はそれが自分の頭で考えていることだと思った。これはクリスチャンをますますそれに今までに出会った他の何よりも惹きつけさせた。そうしてついに彼は神を冒涜するべきだと考えた。今まで深く愛していたお方を。ところが、もし彼がそれを助けたとしても？？そうしなかった？だが、彼は分別がなく。耳を塞ぐとか、この冒瀆の言葉がどこから来るのかを知るとか。
+ひとつ、書き忘れてはならないことがある。このあわれなクリスチャンは狼狽しきっていたため、自分の声さえもわからない様子だった。燃えさかる穴の口のそばを通り過ぎようとしているまさにその時、汚れた霊がクリスチャンの後ろに忍び寄ってきた。それが、神を冒涜する汚らわしい言葉をクリスチャンの耳元でささやいた。クリスチャンは自分の思考の声だと思った。この誘惑は、クリスチャンがこれまで出会った他に何にもまして強力だった。そうこうするうちに、ついに自分は神を冒涜するべきだと考え出した。今まで深く愛していたお方を。自制する力があればそんなことは決してしなかったであろうが、今や彼は自分の耳を塞ぐとか、この冒瀆の言葉がどこから来ているのか聞き分けるとか、そういう分別も失っていた。
 
 When Christian had travelled in this disconsolate condition some considerable time, he thought he heard the voice of a man, as going before him, saying, Though I walk through the Valley of the Shadow of Death, I will fear no evil, for thou art with me. Psa. 23:4. Then was he glad, and that for these reasons:
-クリスチャンはこの不本意な状態でかなりの時間を過ごしてから、前方でひとりの男の声を聞いた気がした。「死の陰の谷を歩いても、私は悪を恐れない。あなたが私と共にいてくださるから。」（詩篇23:4）そのとき、彼は喜んだ。次のような理由で。
+かなりの時間をクリスチャンはこの不本意な状態で過ごした。やがて前方でひとりの男の声を聞いた気がした。「たといわたしは死の陰の谷を歩むとも、わざわいを恐れません。あなたがわたしと共におられるからです。」（詩篇23:4）クリスチャンは喜んだ。その理由は次のとおりである。
 
 First, Because he gathered from thence, that some who feared God were in this valley as well as himself.
-第一に、その声を聞いて、彼と同じように神を恐れる者がこの谷にいると思ったからである。
+第一に、その声を聞いて、自分と同じように神を恐れる者がこの谷にいると知ったからである。
 
 Secondly, For that he perceived God was with them, though in that dark and dismal state. And why not, thought he, with me? though by reason of the impediment that attends this place, I cannot perceive it. [Job 9:11.]
-第二に、陰鬱な暗闇の中にあっても、神が彼らと共にいてくださると知ったからである。それなら、神は私とも共にいてくださるに違いない、と彼は思った。しかし、この場所にある障害物のせいで、私にはそれが見えない。（ヨブ9:11）
+第二に、陰鬱な暗闇の中にあっても、神が彼らと共にいてくださると知ったからである。それなら、神は私とも共にいてくださるに違いない、とクリスチャンは思った。この場所の見通しが悪いせいで、私にはそれが見えないだけで。（ヨブ9:11）
 
 Thirdly, For that he hoped (could he overtake them) to have company by and by.
-第三に、それを聞いた彼は（彼らに追いついて）一緒に行くことを望んだ。
+第三に、（彼らに追いつけるなら）一緒に旅路を行けるという希望を得たからである。
 
 So he went on, and called to him that was before; but he knew not what to answer, for that he also thought himself to be alone. And by and by the day broke: then said Christian, "He hath turned the shadow of death into the morning." [Amos 5:8.]
-それで、クリスチャンは先に進み、前方にいる人に呼びかけた。だが、どう答えるべきかはわからなかった。彼も自分自身が孤立しているように？思ったため。日の終わりかけに、クリスチャンは言った。「彼は死の陰を朝に変えました。」（アモス5:8）
+こういうわけで、クリスチャンは先を急ぎ、前方にいる人に呼びかけた。だが、その人もどう答えたものかわからなかった。その人自身も孤立無援の旅をしていると思っていたからである。だんだんと日が沈んできた。クリスチャンはこう言った。「主が『暗黒を朝に変じ』てくださった（アモス5:8）」
 
 Now morning being come, he looked back, not out of desire to return, but to see, by the light of the day, what hazards he had gone through in the dark. So he saw more perfectly the ditch that was on the one hand, and the quag that was on the other; also how narrow the way was which led betwixt them both. Also now he saw the hobgoblins, and satyrs, and dragons of the pit, but all afar off; for after break of day they came not nigh; yet they were discovered to him, according to that which is written, "He discovereth deep things out of darkness, and bringeth out to light the shadow of death." [Job 12:22.]
-今や朝が来て、彼は後ろを振り返り、戻りたくなくなった。だが見ると、陽の光によって、なんと危険な道を暗闇の中で通り過ぎたのか。
+朝になった。クリスチャンはなんとはなしに後ろを振り返った。引き返したいと思ったわけではない。だが見ると、太陽の光に照らされて、暗闇の中でわからなかったが通り過ぎた道がいかに危険だったかを思い知った。道の片側にある深い溝、その反対側にあるぬかるみ、それらにはさまれた狭い道がはっきり見えた。地獄の妖精、サテュラス、竜もはるか遠くに見えた。「（主が）暗やみの中から隠れた事どもをあらわし、暗やみを光に引き出し」（ヨブ12:22）たと書いてあるとおり、それらの光景ははっきり見えるところとなった。
 
 Now was Christian much affected with this deliverance from all the dangers of his solitary way; which dangers, though he feared them much before, yet he saw them more clearly now, because the light of the day made them conspicuous to him. And about this time the sun was rising, and this was another mercy to Christian; for you must note, that though the first part of the Valley of the Shadow of Death was dangerous, yet this second part, which he was yet to go, was, if possible, far more dangerous; for, from the place where he now stood, even to the end of the valley, the way was all along set so full of snares, traps, gins, and nets here, and so full of pits, pitfalls, deep holes, and shelvings-down there, that had it now been dark, as it was when he came the first part of the way, had he had a thousand souls, they had in reason been cast away; but, as I said, just now the sun was rising. Then said he, "His Candle shineth on my head, and by his light I go through darkness." [Job 29:3.]
 
