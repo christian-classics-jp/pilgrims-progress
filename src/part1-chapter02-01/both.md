@@ -1,4 +1,4 @@
-# (六) 十字架と墓
+# （六） 十字架と墓
 
 Cross and sepulchre
 Now I saw in my dream, that the highway up which Christian was to go, was fenced on either side with a wall, and that wall was called Salvation. [Isaiah 26:1.] Up this way, therefore, did burdened Christian run, but not without great difficulty, because of the load on his back. He ran thus till he came at a place somewhat ascending; and upon that place stood a cross, and a little below, in the bottom, a sepulchre. So I saw in my dream, that just as Christian came up with the cross, his burden loosed from off his shoulders, and fell from off his back, and began to tumble, and so continued to do till it came to the mouth of the sepulchre, where it fell in, and I saw it no more.

@@ -1,4 +1,4 @@
-# (二) 失望の沼
+# （二） 失望の沼
 Now I saw in my Dream, that just as they had ended this talk, they drew near to a very Miry Slow that was in the midst of the Plain, and they being heedless, did both fall suddenly into the bogg. The name of the Slow was Dispond. Here therefore they wallowed for a time, being grievously bedaubed with the dirt; And Christian, because of the burden that was on his back, began to sink in the Mire.
 Pli. Then said Pliable, Ah, Neighbour Christian, where are you now?
 Chr. Truly, said Christian, I do not know.

@@ -1,4 +1,4 @@
-# (一) 滅びの町からの旅立ち
+# （一） 滅びの町からの旅立ち
 
 As I walk'd through the wilderness of this world, I lighted on a certain place, where was a Denn; And I laid me down in that place to sleep: And as I slept I dreamed a Dream. I dreamed, and behold I saw a Man cloathed with Raggs, standing in a certain place, with his face from his own House, a Book in his hand, and a great burden upon his Back. [Isa 64.6; Luke 14.33; Psalm 38.4; Hab. 2.2; Act. 16.30,31] I looked and saw him open the Book, and Read therein; and as he read, he wept and trembled: and not being able longer to contain, he brake out with a lamentable cry; saying, what shall I do?
 私はこの世の荒野を歩いていた。ある洞窟にたどりつき、その中で横になって寝た。眠っているあいだに夢を見た。夢の中で、ぼろぼろの服を着た男が、ある場所に立っていた。彼は、顔を自分の家のほうに向けず、手に一冊の本を持っていて、背中に大きな重荷を負っていた（イザヤ64:6、ルカ14:33、詩篇38:4、ハバクク2:2、使徒16:30-31）。見ていると、彼は本を開いて読んだ。読んでいるうちに、さめざめと涙を流し、がたがたと震えた。それから、ついにこらえきれなくなって、悲痛な叫びをあげた。

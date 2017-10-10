@@ -1,4 +1,4 @@
-# (七) 浅薄、怠惰、厚顔と、形式主義、偽善
+# （七） 浅薄、怠惰、厚顔と、形式主義、偽善
 
 Simple, Sloth, and Presumption; Formalist and Hypocrisy
 I saw then in my dream, that he went on thus, even until he came at the bottom, where he saw, a little out of the way, three men fast asleep, with fetters upon their heels. The name of the one was Simple, of another Sloth, and of the third Presumption.

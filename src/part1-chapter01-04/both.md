@@ -1,4 +1,4 @@
-# (四) 狭い門
+# （四） 狭い門
 
 The Wicket Gate
 Then did Christian address himself to go back; and Evangelist, after he had kissed him, gave him one smile, and bid him God speed; So he went on with haste, neither spake he to any man by the way; nor if any asked him, would he vouchsafe them an answer. He went like one that was all the while treading on forbidden ground, and could by no means think himself safe, till again he was got into the way which he had left to follow Mr. Worldly Wiseman’ counsel. So, in process of time, Christian got up to the gate. Now, over the gate there was written, "Knock, and it shall be opened unto you." [Matt. 7:7.]

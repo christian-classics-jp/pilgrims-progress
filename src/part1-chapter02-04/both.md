@@ -1,4 +1,4 @@
-# (九) 臆病と不信
+# （九） 臆病と不信
 
 Timorous and Mistrust
 Now when he was got up to the top of the hill, there came two men running amain; the name of the one was Timorous, and of the other Mistrust: to whom Christian said, Sirs, what’s the matter? you run the wrong way. Timorous answered, that they were going to the city of Zion, and had got up that difficult place: but, said he, the farther we go, the more danger we meet with; wherefore we turned, and are going back again.

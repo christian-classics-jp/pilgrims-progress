@@ -1,4 +1,4 @@
-# (八) 三つの道: 困難、危険、破滅
+# （八） 三つの道: 困難、危険、破滅
 
 The Three Ways: Difficulty, Danger, and Destruction
 I believe then, that they all went on till they came to the foot of an Hill, at the bottom of which was a Spring. There was also in the same place two other ways besides that which came straight from the Gate; one turned to the left hand, and the other to the right, at the bottom of the Hill: but the narrow way lay right up the Hill, (and the name of the going up the side of the Hill, is called Difficulty.) Christian now went to the Spring [Isa. 49.10] and drank thereof to refresh himself, and then began to go up the Hill; saying,

@@ -1,4 +1,4 @@
-# (五) 解釈者の家
+# （五） 解釈者の家
 
 The House of the Interpreter
 Then he went on till he came at the house of the Interpreter, where he knocked over and over. At last one came to the door, and asked who was there.
