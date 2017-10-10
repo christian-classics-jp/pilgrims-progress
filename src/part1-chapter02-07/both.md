@@ -1,6 +1,6 @@
 # （十二） 死の陰の谷
 
-[The Valley of the Shadow of Death]
+The Valley of the Shadow of Death
 Now at the end of this valley was another, called the Valley of the Shadow of Death; and Christian must needs go through it, because the way to the Celestial City lay through the midst of it. Now, this valley is a very solitary place. The prophet Jeremiah thus describes it: "A wilderness, a land of deserts and pits, a land of drought, and of the Shadow of Death, a land that no man" (but a Christian) "passeth through, and where no man dwelt." [Jer. 2:6.] Now here Christian was worse put to it than in his fight with Apollyon, as by the sequel you shall see.
 さて、〈へりくだりの谷〉の終わりにさしかかると、また別の谷があった。そこは〈死の陰の谷〉と呼ばれていた。避けることはできなかった。天の都への道が通っていたからである。この谷は非常に孤独な場所だった。預言者エレミヤが言うように「荒れ果てた、穴だらけの砂漠の地、日照りの地、死の陰の地、人のいない地、誰も住まない地」（エレミヤ2:6）をクリスチャンは通った。これからの成り行きをご覧になればわかるように、この場所でクリスチャンはアポリュオンとの戦いよりも激しい悪戦苦闘を強いられたのだった。
 
