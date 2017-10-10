@@ -23,7 +23,7 @@ Section 2
 + [x] 4	Timorous and Mistrust
 + [x] 5	The House Beautiful
 + [x] 6	The Valley of Humiliation and Apollyon
-+ [ ] 7	The Valley of the Shadow of Death
++ [x] 7	The Valley of the Shadow of Death
 
 Section 3
 + [ ] 1	Faithful
