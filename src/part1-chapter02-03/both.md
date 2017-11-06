@@ -1,8 +1,8 @@
-# （八） 三つの道: 困難、危険、破滅
+# （八） 三つの道・ 困難、危険、破滅
 
 The Three Ways: Difficulty, Danger, and Destruction
 I believe then, that they all went on till they came to the foot of an Hill, at the bottom of which was a Spring. There was also in the same place two other ways besides that which came straight from the Gate; one turned to the left hand, and the other to the right, at the bottom of the Hill: but the narrow way lay right up the Hill, (and the name of the going up the side of the Hill, is called Difficulty.) Christian now went to the Spring [Isa. 49.10] and drank thereof to refresh himself, and then began to go up the Hill; saying,
-それからこういう次第だったと思う。彼らが道を歩き続けていると、山のふもとに出た。そこには泉があった。また、門から続くまっすぐな道の他に、山のふもとで二つの道が枝分かれしていた。ひとつは山を左に迂回し、もうひとつは右に迂回していた。けれども、真ん中の狭い道は、まっすぐに山の上へと伸びていた（この道の名前は〈困難〉といった）。クリスチャンは泉に近づき（イザヤ49:10）、水を飲んで力を得た。それから山を登り始めた。
+それからこういう次第だったと思う。彼らが道を歩き続けていると、山のふもとに出た。そこには泉があった。また、門から続くまっすぐな道の他に、山のふもとで二つの道が枝分かれしていた。ひとつは山を左に迂回し、もうひとつは右に迂回していた。けれども、真ん中の狭い道は、まっすぐに山の上へと伸びていた（この道の名前は〈困難〉といった）。クリスチャンは泉に近づき（イザヤ四九・一〇）、水を飲んで力を得た。それから山を登り始めた。
 
 This Hill, though high, I covet to ascend,
 The difficulty will not me offend:
@@ -23,6 +23,6 @@ The other two also came to the foot of the hill. But when they saw that the hill
 I looked then after Christian, to see him go up the hill, where I perceived he fell from running to going, and from going to clambering upon his hands and his knees, because of the steepness of the place. Now about the midway to the top of the hill was a pleasant Arbor, made by the Lord of the hill for the refreshment of weary travellers. Thither, therefore, Christian got, where also he sat down to rest him: then he pulled his roll out of his bosom, and read therein to his comfort; he also now began afresh to take a review of the coat or garment that was given to him as he stood by the cross. Thus pleasing himself awhile, he at last fell into a slumber, and thence into a fast sleep, which detained him in that place until it was almost night; and in his sleep his roll fell out of his hand. Now, as he was sleeping, there came one to him, and awaked him, saying, "Go to the ant, thou sluggard; consider her ways, and be wise." [Prov. 6:6.] And with that, Christian suddenly started up, and sped him on his way, and went apace till he came to the top of the hill.
 クリスチャンは山を登っていた。最初走っていたが、山が険しくなると歩くようになり、さらに険しくなると手とひざを使ってよじのぼった。山の中腹に着くと、ありがたいことに休憩所があった。疲れた旅人を休ませるために主が用意してくださったものだった。クリスチャンはそこに入り、座って休憩した。ふところから巻物を取り出し、読んで慰めを得た。また、十字架の近くで受け取った立派な外套をまじまじと見つめて、心に力を得た。こうして喜びに浸っていたが、そのうちにうとうとし始め、つい眠ってしまった。時間が経ち、日暮れになった。眠っているうちに巻物は手からすべり落ちていた。すると、誰かが眠っている彼のところに来て、ゆすり起こした。
 
-『なまけ者よ、ありのところへ行き、そのすることを見て、知恵を得よ』（箴言6:6）
+『なまけ者よ、ありのところへ行き、そのすることを見て、知恵を得よ』（箴言六・六）
 
 クリスチャンは飛び起き、急いで出発した。山の頂上までもう速度を落とさなかった。

@@ -5,7 +5,7 @@ I saw then in my dream, that he went on thus, even until he came at the bottom, 
 私が夢の中で見ていると、クリスチャンは旅を続け、谷のふもとに出た。そこで道の外れに、三人の男が足かせにつながれたまま眠っていた。それぞれの名前は〈浅薄〉、〈怠惰〉、〈厚顔〉といった。
 
 Christian then seeing them lie in this case, went to them, if peradventure he might awake them, and cried, you are like them that sleep on the top of a mast, [Prov. 23:34], for the Dead Sea is under you, a gulf that hath no bottom: awake, therefore, and come away; be willing also, and I will help you off with your irons. He also told them, If he that goeth about like a roaring lion, [1 Pet. 5:8], comes by, you will certainly become a prey to his teeth. With that they looked upon him, and began to reply in this sort: Simple said, I see no danger; Sloth said, Yet a little more sleep; and Presumption said, Every tub must stand upon its own bottom. And so they lay down to sleep again, and Christian went on his way.
-クリスチャンはこの三人が寝転がっているのを見て、彼らに近づき、起こそうとして大声で言った。「ここで寝るのは、船の帆の上で眠るようなものです(箴言23:34)。死の海があなたがたの下にあります。底知れぬ深淵です。ですから、起きてここを離れなさい。そうするおつもりなら、その足かせを外すのを手伝います」また彼は言った。「ほえたける獅子のように行き巡っている者(第一ペテロ5:8)が近づいたら、あなたはきっと牙をかけられて餌にされます。」すると彼らはクリスチャンを見つめて、こう返事をした。
+クリスチャンはこの三人が寝転がっているのを見て、彼らに近づき、起こそうとして大声で言った。「ここで寝るのは、船の帆の上で眠るようなものです（箴言二三・三四）。死の海があなたがたの下にあります。底知れぬ深淵です。ですから、起きてここを離れなさい。そうするおつもりなら、その足かせを外すのを手伝います」また彼は言った。「ほえたける獅子のように行き巡っている者（第一ペテロ五・八）が近づいたら、あなたはきっと牙をかけられて餌にされます。」すると彼らはクリスチャンを見つめて、こう返事をした。
 
 浅薄「今のところどこにも危険を見かけませんよ」
 
@@ -25,7 +25,7 @@ FORM & HYP. We were born in the land of Vain-glory, and are going, for praise, t
 形式主義と偽善「我々は虚栄の国で生まれました。そして、栄誉を得るためにシオンの山に向かっているところです」
 
 CHR. Why came you not in at the gate which standeth at the beginning of the way? Know ye not that it is written, that "he that cometh not in by the door, but climbeth up some other way, the same is a thief and a robber?" [John 10:1.]
-クリスチャン「どうしてお二人は道の始めにある門から来なかったのですか。こう書かれているのをご存知ありませんか。『門からでなく、ほかの所からのりこえて来る者は、盗人であり、強盗である』(ヨハネ10:1)」
+クリスチャン「どうしてお二人は道の始めにある門から来なかったのですか。こう書かれているのをご存知ありませんか。『門からでなく、ほかの所からのりこえて来る者は、盗人であり、強盗である』（ヨハネ一〇・一）」
 
 FORM & HYP. They said, that to go to the gate for entrance was by all their countrymen counted too far about; and that therefore their usual way was to make a short cut of it, and to climb over the wall, as they had done.
 形式主義と偽善「入口の門は、我々の国からあまりにも遠いところにあるのです。ですから、こうやって壁をよじ登って近道するほうが簡単です」
@@ -49,7 +49,7 @@ To this they made him but little answer; only they bid him look to himself. Then
 二人は言葉に詰まり、余計なお世話だ、と言い捨てた。それから、二人とクリスチャンはほとんど話さずに同じ道を歩いた。おもむろに二人は言った。「戒めとおきてに従うことに関しては、我々はあなたと同じくらい良心に忠実ですよ。だから、あなたと何の違いもありません。唯一の違いはあなたの着ている外套だけです。それは裸の恥を隠すために誰か隣人からもらったものでしょうか」。
 
 CHR. By laws and ordinances you will not be saved, since you came not in by the door. [Gal. 2:16.] And as for this coat that is on my back, it was given me by the Lord of the place whither I go; and that, as you say, to cover my nakedness with. And I take it as a token of kindness to me; for I had nothing but rags before. And besides, thus I comfort myself as I go. Surely, think I, when I come to the gate of the city, the Lord thereof will know me for good, since I have his coat on my back; a coat that he gave me freely in the day that he stripped me of my rags. I have, moreover, a mark in my forehead, of which perhaps you have taken no notice, which one of my Lord’s most intimate associates fixed there in the day that my burden fell off my shoulders. I will tell you, moreover, that I had then given me a roll sealed, to comfort me by reading as I go on the way; I was also bid to give it in at the celestial gate, in token of my certain going in after it: all which things I doubt you want, and want them because you came not in at the gate.
-クリスチャン「あなたがたは門から入らなかったのですから、戒めとおきてによっては救われません(ガラテヤ2:16)。私の着ている外套ですが、これは私が行った場所で主からいただいたものです。おっしゃるとおり、裸の恥をおおうためです。これは私への好意のしるしです。以前の私はぼろ布しか持っていなかったものですから。それと、旅の道中でこれが私を慰めてくれます。都の門に到着したとき、この外套を着ているために、そこにおられる主がきっと私を歓迎してくださると思います。この外套は、私のぼろ布を脱がせた主ご自身が気前よく私にくださったものですから。また、お気づきでないかもしれませんが、私のひたいには印が付けられています。これは、私の肩から重荷が落ちた日に、主に最も近しい方のひとりが付けてくださったものです。そのときにもうひとつ、封をされた巻物をいただきました。道中これを読んで慰めを得るようにと、また天の門でこれを通行証として手渡すようにと言われました。あなたがたは入口の門から入っていませんから、これらのものを欲しいと思われるのではないでしょうか」
+クリスチャン「あなたがたは門から入らなかったのですから、戒めとおきてによっては救われません（ガラテヤ二・一六）。私の着ている外套ですが、これは私が行った場所で主からいただいたものです。おっしゃるとおり、裸の恥をおおうためです。これは私への好意のしるしです。以前の私はぼろ布しか持っていなかったものですから。それと、旅の道中でこれが私を慰めてくれます。都の門に到着したとき、この外套を着ているために、そこにおられる主がきっと私を歓迎してくださると思います。この外套は、私のぼろ布を脱がせた主ご自身が気前よく私にくださったものですから。また、お気づきでないかもしれませんが、私のひたいには印が付けられています。これは、私の肩から重荷が落ちた日に、主に最も近しい方のひとりが付けてくださったものです。そのときにもうひとつ、封をされた巻物をいただきました。道中これを読んで慰めを得るようにと、また天の門でこれを通行証として手渡すようにと言われました。あなたがたは入口の門から入っていませんから、これらのものを欲しいと思われるのではないでしょうか」
 
 To these things they gave him no answer; only they looked upon each other, and laughed. Then I saw that they went all on, save that Christian kept before, who had no more talk but with himself, and that sometimes sighingly, and sometimes comfortably: also he would be often reading in the roll that one of the Shining Ones gave him, by which he was refreshed.
 二人は答えず、お互いに顔を見合わせて笑うだけだった。それから私が見ていると、彼らは道を続けたが、クリスチャンはもう二人と話さずに、ため息をついたり心踊ったりしながらひとり前に進んだ。また、輝く者たちから受け取った巻物を読んでは慰めを得た。

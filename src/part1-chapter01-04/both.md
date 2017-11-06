@@ -4,7 +4,7 @@ The Wicket Gate
 Then did Christian address himself to go back; and Evangelist, after he had kissed him, gave him one smile, and bid him God speed; So he went on with haste, neither spake he to any man by the way; nor if any asked him, would he vouchsafe them an answer. He went like one that was all the while treading on forbidden ground, and could by no means think himself safe, till again he was got into the way which he had left to follow Mr. Worldly Wiseman’ counsel. So, in process of time, Christian got up to the gate. Now, over the gate there was written, "Knock, and it shall be opened unto you." [Matt. 7:7.]
 クリスチャンはもとの道に戻ることにした。伝道者は彼に口づけをしてほほえみ、祝福を祈った。それからクリスチャンは先を急いだ。道中、誰にも話しかけず、また誰かに話しかけられても答えなかった。まるで禁じられた地に足を踏み入れた者のように、自分は安全ではないと考えた。やっとのことで、世の賢者から助言を聞いて出発した地点に戻った。そこからしばらく歩いて、クリスチャンは門に到着した。見上げると、こう書いてあった。
 
-『門をたたけ、そうすれば、あけてもらえるであろう』(マタイ7:7)
+『門をたたけ、そうすれば、あけてもらえるであろう』（マタイ七・七）
 
 He knocked, therefore, more than once or twice, saying,
 クリスチャンは門を叩いた。一度、二度、それからもう一度。
@@ -85,13 +85,13 @@ CHR. Why truly I do not know what had become of me there, had not Evangelist hap
 クリスチャン「私がそこで打ちひしがれて呆然としているときに、もしも伝道者が幸いにももう一度私のところに来てくださらなかったら、私はどうなっていたかわかりません。しかし、神の恵みですね、伝道者が私に会いに来てくださいました。そうでなければ、私はここに来ていません。私はこうして来ましたが、このような者ですから、私の主とこうしてお話するよりも、あの山で死んでいたほうがふさわしかったかもしれません。しかし、ああ、なんという恵みでしょうか。この入り口を通ることをゆるされるとは！」
 
 GOOD. We make no objections against any, notwithstanding all that they have done before they come hither; they in no wise are cast out. John 6:37. And therefore good Christian, come a little way with me, and I will teach thee about the way thou must go. Look before thee; dost thou see this narrow way? That is the way thou must go. It was cast up by the patriarchs, prophets, Christ, and his apostles, and it is as strait as a rule can make it; this is the way thou must go.
-好意「ここに来る以前にどんなことを行った人であっても、私たちは拒絶しません。愚か者でも追い出されません（ヨハネ6:37）。ですから、善良なクリスチャンさん、私と一緒に少し歩きましょうか。あなたが進むべき道について教えます。前を見てください。この狭い道が見えますか。これがあなたの進むべき道です。族長が、預言者が、キリストが、キリストの使徒たちが行った道です。完全にまっすぐです。これがあなたの進むべき道です」
+好意「ここに来る以前にどんなことを行った人であっても、私たちは拒絶しません。愚か者でも追い出されません（ヨハネ六・三七）。ですから、善良なクリスチャンさん、私と一緒に少し歩きましょうか。あなたが進むべき道について教えます。前を見てください。この狭い道が見えますか。これがあなたの進むべき道です。族長が、預言者が、キリストが、キリストの使徒たちが行った道です。完全にまっすぐです。これがあなたの進むべき道です」
 
 CHR. But, said Christian, are there no turnings nor windings, by which a stranger may lose his way?
 クリスチャン「しかし、初めて来た人が道に迷うような曲がり角やうねり道はありませんか」
 
 GOOD. Yes, there are many ways butt down upon this, and they are crooked and wide: but thus thou mayest distinguish the right from the wrong, the right only being strait and narrow. [Matt. 7:14.]
-好意「この道から枝分かれする多くの道があります。それらは曲がりくねっていて広いです。しかし、あなたは正しい道と間違った道を見分けることができます。正しい道は、まっすぐで狭いのです（マタイ7:14）」
+好意「この道から枝分かれする多くの道があります。それらは曲がりくねっていて広いです。しかし、あなたは正しい道と間違った道を見分けることができます。正しい道は、まっすぐで狭いのです（マタイ七・一四）」
 
 Then I saw in my dream, that Christian asked him further, if he could not help him off with his burden that was upon his back. For as yet he had not got rid thereof; nor could he by any means get it off without help.
 私が夢で見ていると、クリスチャンは彼にさらに尋ねた。「この背中の重荷を取るのを手伝ってもらえないでしょうか。自分では取れないものですから。誰かの助けなしには全く取れません」

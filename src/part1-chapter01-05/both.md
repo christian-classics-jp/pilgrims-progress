@@ -22,7 +22,7 @@ CHR. Then said Christian, What means this?
 クリスチャン「これはどういう意味ですか」
 
 INTER. The man whose picture this is, is one of a thousand: he can beget children, [1 Cor. 4:15], travail in birth with children, Gal. 4:19, and nurse them himself when they are born. And whereas thou seest him with his eyes lift up to heaven, the best of books in his hand, and the law of truth writ on his lips: it is to show thee, that his work is to know, and unfold dark things to sinners; even as also thou seest him stand as if he pleaded with men. And whereas thou seest the world as cast behind him, and that a crown hangs over his head; that is to show thee, that slighting and despising the things that are present, for the love that he hath to his Master’ service, he is sure in the world that comes next, to have glory for his reward. Now, said the Interpreter, I have showed thee this picture first, because the man whose picture this is, is the only man whom the Lord of the place whither thou art going hath authorized to be thy guide in all difficult places thou mayest meet with in the way: wherefore take good heed to what I have showed thee, and bear well in thy mind what thou hast seen, lest in thy journey thou meet with some that pretend to lead thee right, but their way goes down to death.
-解釈者「この絵に描かれた方は、千人に一人の者です。多くの子をもうけ(第一コリント4:15)、旅の先々で子を生み(ガラテヤ4:19)、生まれた子らをみずから手塩にかけて育みました。ご覧のとおり、目は天を見上げ、手には最高の本を持ち、真理の律法がくちびるに記されています。その意味は、罪人の隠れた闇を知り、それを明るみに出すのが彼の働きであるということです。また、ご覧のとおり、人を弁護するような風貌です。世界が彼の背後にあり、王冠が頭に載っています。その意味は、主の恵みに対する愛に燃えている彼は、現在のものを軽蔑し、やがて来る次の世で報いとして栄光を受けることを確信しているということです。この絵をはじめにご覧になっていただいたのはなぜかと申しますと、目的の地を支配しておられる主が、あなたが道中でさまざまな困難にぶつかるときに、この方が案内者となるようにと権威をもって定められたからです」
+解釈者「この絵に描かれた方は、千人に一人の者です。多くの子をもうけ（第一コリント四・一五）、旅の先々で子を生み（ガラテヤ四・一九）、生まれた子らをみずから手塩にかけて育みました。ご覧のとおり、目は天を見上げ、手には最高の本を持ち、真理の律法がくちびるに記されています。その意味は、罪人の隠れた闇を知り、それを明るみに出すのが彼の働きであるということです。また、ご覧のとおり、人を弁護するような風貌です。世界が彼の背後にあり、王冠が頭に載っています。その意味は、主の恵みに対する愛に燃えている彼は、現在のものを軽蔑し、やがて来る次の世で報いとして栄光を受けることを確信しているということです。この絵をはじめにご覧になっていただいたのはなぜかと申しますと、目的の地を支配しておられる主が、あなたが道中でさまざまな困難にぶつかるときに、この方が案内者となるようにと権威をもって定められたからです」
 
 Then he took him by the hand, and led him into a very large parlor that was full of dust, because never swept; the which after he had reviewed it a little while, the Interpreter called for a man to sweep. Now, when he began to sweep, the dust began so abundantly to fly about, that Christian had almost therewith been choked. Then said the Interpreter to a damsel that stood by, "Bring hither water, and sprinkle the room;" the which when she had done, it was swept and cleansed with pleasure.
 次に、解釈者はクリスチャンの手を取って、広々とした応接間に案内した。そこは掃除されておらず、ほこりが積もっていた。クリスチャンがしばらく見回していると、解釈者は従者を呼んでそこを掃かせた。ところが、掃き始めるとほこりがひどく舞ったので、クリスチャンは咳き込んだ。解釈者は横にいた乙女に、水を持ってきて部屋にまくように命じた。水をまくと、部屋はきれいになり、すがすがしくなった。
@@ -31,7 +31,7 @@ CHR. Then said Christian, What means this?
 クリスチャン「これはどういう意味ですか」
 
 INTER. The Interpreter answered, This parlor is the heart of a man that was never sanctified by the sweet grace of the Gospel. The dust is his original sin, and inward corruptions, that have defiled the whole man. He that began to sweep at first, is the law; but she that brought water, and did sprinkle it, is the Gospel. Now whereas thou sawest, that so soon as the first began to sweep, the dust did so fly about that the room by him could not be cleansed, but that thou wast almost choked therewith; this is to show thee, that the law, instead of cleansing the heart (by its working) from sin, doth revive, [Rom. 7:9], put strength into, [1 Cor. 15:56], and increase it in the soul, [Rom. 5:20], even as it doth discover and forbid it; for it doth not give power to subdue. Again, as thou sawest the damsel sprinkle the room with water, upon which it was cleansed with pleasure, this is to show thee, that when the Gospel comes in the sweet and precious influences thereof to the heart, then, I say, even as thou sawest the damsel lay the dust by sprinkling the floor with water, so is sin vanquished and subdued, and the soul made clean, through the faith of it, and consequently fit for the King of glory to inhabit. [John 15:3; Eph. 5:26; Acts 15:9; Rom. 16:25,26.]
-解釈者「この部屋は、これまで一度も福音の豊かな恵みによってきよめられたことのない人の心です。ご覧になったとおり、箒で掃き始めるとほこりが部屋中に舞うので、人がきよめることはできず、むしろ咳が出るほどひどくなります。その意味は、律法は心を罪からきよめることをせず、罪を呼び覚まし(ローマ7:9)、罪の働きを強め(第一コリント15:56)、魂のうちで罪の力がますます強くなります(ローマ5:20)。律法は罪を明るみに出し、禁ずるだけで、罪を支配する力はありません。また、乙女が部屋に水をまくと部屋がきよらかになりましたが、その意味は、福音が来ると心に豊かで尊い感化を与えるということです。乙女が床にまいた水がほこりを流しましたが、それは罪が征服され支配されて、信仰によって魂がきよめられたということです。そうして、栄光の王が住まうにふさわしい部屋になるのです(ヨハネ15:3、エペソ5:26、使徒15:9、ローマ15:25-26)」
+解釈者「この部屋は、これまで一度も福音の豊かな恵みによってきよめられたことのない人の心です。ご覧になったとおり、箒で掃き始めるとほこりが部屋中に舞うので、人がきよめることはできず、むしろ咳が出るほどひどくなります。その意味は、律法は心を罪からきよめることをせず、罪を呼び覚まし（ローマ七・九）、罪の働きを強め（第一コリント一五・五六）、魂のうちで罪の力がますます強くなります（ローマ五・二〇）。律法は罪を明るみに出し、禁ずるだけで、罪を支配する力はありません。また、乙女が部屋に水をまくと部屋がきよらかになりましたが、その意味は、福音が来ると心に豊かで尊い感化を与えるということです。乙女が床にまいた水がほこりを流しましたが、それは罪が征服され支配されて、信仰によって魂がきよめられたということです。そうして、栄光の王が住まうにふさわしい部屋になるのです（ヨハネ一五・三、エペソ五・二六、使徒一五・九、ローマ一五・二五〜二六）」
 
 I saw moreover in my dream, that the Interpreter took him by the hand, and had him into a little room, where sat two little children, each one in his chair. The name of the eldest was Passion, and the name of the other Patience. Passion seemed to be much discontented, but Patience was very quiet. Then Christian asked, "What is the reason of the discontent of Passion?" The Interpreter answered, "The governor of them would have him stay for his best things till the beginning of the next year, but he will have all now; but Patience is willing to wait." Then I saw that one came to Passion, and brought him a bag of treasure, and poured it down at his feet: the which he took up, and rejoiced therein, and withal laughed Patience to scorn. But I beheld but a while, and he had lavished all away, and had nothing left him but rags.
 また私が夢で見ていると、解釈者がクリスチャンの手を取って、小部屋に連れて行った。そこには小さな子供が二人、椅子に座っていた。年上のほうは熱情という名前で、年下のほうは忍耐という名前だった。熱情はひどく不機嫌そうで、忍耐は静かにしていた。
@@ -57,13 +57,13 @@ CHR. Then said Christian, Now I see that Patience has the best wisdom, and that 
 こういった点で知恵がありますね」
 
 INTER. Nay, you may add another, to wit, the glory of the next world will never wear out; but these are suddenly gone. Therefore Passion had not so much reason to laugh at Patience because he had his good things first, as Patience will have to laugh at Passion because he had his best things last; for first must give place to last, because last must have his time to come: but last gives place to nothing, for there is not another to succeed. He, therefore, that hath his portion first, must needs have a time to spend it; but he that hath his portion last, must have it lastingly: therefore it is said of Dives, "In thy lifetime thou receivedst thy good things, and likewise Lazarus evil things; but now he is comforted, and thou art tormented." [Luke 16:25.]
-解釈者「もうひとつ付け加えると、次の世の栄光は決して衰えませんが、この世のものは突然消えてしまいます。だから、熱情は最初に良いものを受けたからといって忍耐を笑うとすれば、忍耐が最後に最も良いものを受けたときに熱情を笑わなければならないでしょう。最後のものはやがて必ず来るので、最初のものは最後のものに置き替わらなければならないが、最後のものは何にも置き換わりません。もうその後には何もありませんから。ですから、最初に分け前をもらった者はそれを時間とともに消費せざるを得ませんが、最後に分け前をもらう者は永遠にそれを保ちます。金持ちについてこう言われているとおりです。『あなたは生前よいものを受け、ラザロの方は悪いものを受けた。しかし今ここでは、彼は慰められ、あなたは苦しみもだえている』(ルカ16:25)」
+解釈者「もうひとつ付け加えると、次の世の栄光は決して衰えませんが、この世のものは突然消えてしまいます。だから、熱情は最初に良いものを受けたからといって忍耐を笑うとすれば、忍耐が最後に最も良いものを受けたときに熱情を笑わなければならないでしょう。最後のものはやがて必ず来るので、最初のものは最後のものに置き替わらなければならないが、最後のものは何にも置き換わりません。もうその後には何もありませんから。ですから、最初に分け前をもらった者はそれを時間とともに消費せざるを得ませんが、最後に分け前をもらう者は永遠にそれを保ちます。金持ちについてこう言われているとおりです。『あなたは生前よいものを受け、ラザロの方は悪いものを受けた。しかし今ここでは、彼は慰められ、あなたは苦しみもだえている』（ルカ一六・二五）」
 
 CHR. Then I perceive it is not best to cover things that are now, but to wait for things to come.
 クリスチャン「そうですか。現在のものに心を煩わせるのではなく、やがて来るものを待ち望むべきだということがわかりました」
 
 INTER. You say truth: for the things that are seen are temporal, but the things that are not seen are eternal. 2 Cor. 4:18. But though this be so, yet since things present and our fleshly appetite are such near neighbors one to another; and again, because things to come and carnal sense are such strangers one to another; therefore it is, that the first of these so suddenly fall into amity, and that distance is so continued between the second.
-解釈者「それは真理です。見えるものは一時的であり、見えないものは永遠だからです(第二コリント4:18)。だがそうであっても、現在のものと私たちの肉の欲はなじみ深い隣人同士であるし、また、やがて来るものと肉の感覚は見ず知らずの他人同士です。それゆえ、現在のものと肉の欲は非常に結びつきやすく、やがて来るものと肉の感覚はなじみません」
+解釈者「それは真理です。見えるものは一時的であり、見えないものは永遠だからです（第二コリント四・一八）。だがそうであっても、現在のものと私たちの肉の欲はなじみ深い隣人同士であるし、また、やがて来るものと肉の感覚は見ず知らずの他人同士です。それゆえ、現在のものと肉の欲は非常に結びつきやすく、やがて来るものと肉の感覚はなじみません」
 
 Then I saw in my dream, that the Interpreter took Christian by the hand, and led him into a place where was a fire burning against a wall, and one standing by it, always casting much water upon it, to quench it; yet did the fire burn higher and hotter.
 また、私が夢の中で見ていると、解釈者はクリスチャンの手を取って、壁から火が吹き出ている場所に連れて行った。ひとりの人がその近くに立っていて、消火するために水を何度もかけていたが、火はますます強く燃え盛るばかりだった。
@@ -91,7 +91,7 @@ Then said Christian may we go in thither?
 Then the Interpreter took him, and led him up towards the door of the palace; and behold, at the door stood a great company of men, as desirous to go in, but durst not. There also sat a man at a little distance from the door, at a table-side, with a book and his inkhorn before him, to take the names of them that should enter therein; he saw also that in the doorway stood many men in armor to keep it, being resolved to do to the men that would enter, what hurt and mischief they could. Now was Christian somewhat in amaze. At last, when every man started back for fear of the armed men, Christian saw a man of a very stout countenance come up to the man that sat there to write, saying, "Set down my name, sir;" the which when he had done, he saw the man draw his sword, and put a helmet on his head, and rush towards the door upon the armed men, who laid upon him with deadly force; but the man, not at all discouraged, fell to cutting and hacking most fiercely. So after he had received and given many wounds to those that attempted to keep him out, Matt. 11:12; Acts 14:22; he cut his way through them all, and pressed forward into the palace; at which there was a pleasant voice heard from those that were within, even of those that walked upon the top of the palace, saying,
 解釈者は彼を宮殿の入り口に連れて行った。扉の前には大勢の人が詰めかけていて、中に入ろうとするも入れずにいた。少し離れたところに椅子とテーブルがあり、そこに座っている人がいた。テーブルには本とインクが置いてあり、本には宮殿に入れる人の名前が記されていた。また、宮殿の入り口には鎧を着た門番がたくさんいて、中に押し入ろうとする者を攻撃しようと構えていた。
 
-クリスチャンはそれを見て唖然としていた。しばらくすると、門に詰めかけていた人々は門番に恐れをなして退散しはじめた。ひとりのこわおもての男がテーブルで座って書いている人に近づいて、「そこに俺の名前を書け」とすごんだ。そして名前を書かせると、彼は剣を抜いて、兜をかぶり、門番のところに走っていった。門番たちは死力を尽くして戦った。ところが、その男は降参せず、果敢に剣を振り回した。追い返そうとする門番たちの攻撃で彼は多くの傷を負った(マタイ11:12、使徒14:22)が、ついに門番たちをみな倒して、宮殿に押し入った。すると、中から歓喜の声が聞こえてきた。宮殿の上のほうにいる人たちの声だった。
+クリスチャンはそれを見て唖然としていた。しばらくすると、門に詰めかけていた人々は門番に恐れをなして退散しはじめた。ひとりのこわおもての男がテーブルで座って書いている人に近づいて、「そこに俺の名前を書け」とすごんだ。そして名前を書かせると、彼は剣を抜いて、兜をかぶり、門番のところに走っていった。門番たちは死力を尽くして戦った。ところが、その男は降参せず、果敢に剣を振り回した。追い返そうとする門番たちの攻撃で彼は多くの傷を負った（マタイ一一・一二、使徒一四・二二）が、ついに門番たちをみな倒して、宮殿に押し入った。すると、中から歓喜の声が聞こえてきた。宮殿の上のほうにいる人たちの声だった。
 
 "Come in, come in,
 Eternal glory thou shalt win."
@@ -117,7 +117,7 @@ CHR. What wast thou once?
 クリスチャン「昔はどうだったのですか」
 
 MAN. The man said, I was once a fair and flourishing professor, Luke 8:13, both in mine own eyes, and also in the eyes of others: I once was, as I thought, fair for the celestial city, and had then even joy at the thoughts that I should get thither.
-男「私は昔、精気あふれる信仰者だった(ルカ8:13)。自分でもそう自負していたし、人からもそう認められていた。天の都にふさわしい者だと自認し、天でいただけるものを思い浮かべては喜んでいた」
+男「私は昔、精気あふれる信仰者だった（ルカ八・一三）。自分でもそう自負していたし、人からもそう認められていた。天の都にふさわしい者だと自認し、天でいただけるものを思い浮かべては喜んでいた」
 
 CHR. Well, but what art thou now?
 クリスチャン「では、今はどうなったのですか」
@@ -144,7 +144,7 @@ CHR. Why, the Son of the Blessed is very pitiful.
 クリスチャン「どうしてでしょうか。祝福された御子はあわれみ深い方ですのに」
 
 MAN. I have crucified him to myself afresh, [Heb. 6:6]; I have despised his person, [Luke 19:14]; I have despised his righteousness; I have counted his blood an unholy thing; I have done despite to the spirit of grace, Heb. 10:29: therefore I have shut myself out of all the promises and there now remains to me nothing but threatenings, dreadful threatenings, faithful threatenings of certain judgment and fiery indignation, which shall devour me as an adversary.
-男「私は御子を二度、十字架にかけたのだ(ヘブル6:6)。御子を軽んじた(19:14)。御子の義を軽んじた。御子の血を汚れたものとみなした。恵みの御霊をあなどった(ヘブル10:29)。だから、私は自分をすべての約束から閉め出した。今、私に残されているものは恐怖だけだ。必ず来る裁きと燃える御怒りが私を反逆者として滅ぼすことをただひたすら怯えている」
+男「私は御子を二度、十字架にかけたのだ（ヘブル六・六）。御子を軽んじた（一九・一四）。御子の義を軽んじた。御子の血を汚れたものとみなした。恵みの御霊をあなどった（ヘブル一〇・二九）。だから、私は自分をすべての約束から閉め出した。今、私に残されているものは恐怖だけだ。必ず来る裁きと燃える御怒りが私を反逆者として滅ぼすことをただひたすら怯えている」
 
 CHR. For what did you bring yourself into this condition?
 クリスチャン「どうしてそんなふうになったのですか」
@@ -174,15 +174,15 @@ So he began, and said, "This night, as I was in my sleep, I dreamed, and behold 
 
 『死人たちよ、起き上がれ。裁きの時が来た』
 
-すると、岩が裂け、墓が開き、死人がそこから出てきました。ある者は歓喜して天を見上げ、ある者は山の下に隠れようとしていました。それから、雲の上に座っておられる方が本を開き、世界よ近づきなさいと命じるのを見ました。ところが、彼の前から吹き出る激しい炎のゆえに、彼と世界との間には、法廷での裁判官と囚人のように一定の距離が保ってありました（第一コリント15:1-58、第一テサロニケ4:16、ユダ1:15、ヨハネ5:28-29、第二テサロニケ1:8-10、黙示録20:11-14、イザヤ26:21、ミカ7:16-17、詩篇5:4、詩篇50:1-3、マラキ3:2,3、ダニエル7:9-10）。また、雲の上の方に従っている軍勢に、こう命じるのが聞こえました。
+すると、岩が裂け、墓が開き、死人がそこから出てきました。ある者は歓喜して天を見上げ、ある者は山の下に隠れようとしていました。それから、雲の上に座っておられる方が本を開き、世界よ近づきなさいと命じるのを見ました。ところが、彼の前から吹き出る激しい炎のゆえに、彼と世界との間には、法廷での裁判官と囚人のように一定の距離が保ってありました（第一コリント一五・一〜五八、第一テサロニケ四・一六、ユダ一・一五、ヨハネ五・二八〜二九、第二テサロニケ一・八〜一〇、黙示録二〇・一一〜一四、イザヤ二六・二一、ミカ七・一六〜一七、詩篇五・四、詩篇五〇・一〜三、マラキ三・二、三、ダニエル七・九〜一〇）。また、雲の上の方に従っている軍勢に、こう命じるのが聞こえました。
 
-『雑草、わら、切り株を集めて、火の池に投げ込め』（マタイ3:12、マタイ18:30、マタイ24:30、マラキ4:1）
+『雑草、わら、切り株を集めて、火の池に投げ込め』（マタイ三・一二、マタイ一八・三〇、マタイ二四・三〇、マラキ四・一）
 
 すると、私の立っているところのすぐ近くに、底知れぬ穴が口を開きました。そこからすさまじい音でおびただしい量の煙と炭火が吹き出てきました。また、雲の上の方が言われました。
 
-『私の麦穂を収穫して穀物倉に納めよ』（ルカ3:17）
+『私の麦穂を収穫して穀物倉に納めよ』（ルカ三・一七）
 
-すると、大勢の者が雲の中に引き上げられていくのが見えましたが、私は取り残されました（第一テサロニケ4:16-17）。私もどこかに隠れようとしましたが、できませんでした。雲の上の方が私をじっと見つめておられたからです。心の中に私の罪もあふれてきて、良心が自分を責め立てました。（ローマ2:14-15）そこで眠りから覚めました」
+すると、大勢の者が雲の中に引き上げられていくのが見えましたが、私は取り残されました（第一テサロニケ四・一六〜一七）。私もどこかに隠れようとしましたが、できませんでした。雲の上の方が私をじっと見つめておられたからです。心の中に私の罪もあふれてきて、良心が自分を責め立てました。（ローマ二・一四〜一五）そこで眠りから覚めました」
 
 CHR. But what was it that made you so afraid of this sight?
 クリスチャン「けれども、その夢を見て、どうしてそんなに恐れているのですか」

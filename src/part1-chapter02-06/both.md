@@ -39,7 +39,7 @@ CHR. I was, indeed, born in your dominions, but your service was hard, and your 
 
 アポリュオン「なるほど。ではお前は私の臣民だ。その国は私のものだからだ。私はその国の王子であり、神でもある。だが、どういうわけでお前は王から逃げ出したのか。私への奉仕にもっと精を出すためか。もしそうでないなら、お前をいまここで地に打ち付けてやる」
 
-クリスチャン「私は確かにあなたの支配する国に生まれましたが、あなたの与える仕事は労苦ばかりで、その賃金はそれによって人が生きられるようなものではありませんでした。罪の対価は死だからです（ローマ6:23）。ですから、私は大人になってから、思慮深い人がそうするように、善く生きるための道を探しました」
+クリスチャン「私は確かにあなたの支配する国に生まれましたが、あなたの与える仕事は労苦ばかりで、その賃金はそれによって人が生きられるようなものではありませんでした。罪の対価は死だからです（ローマ六・二三）。ですから、私は大人になってから、思慮深い人がそうするように、善く生きるための道を探しました」
 
 APOL. There is no prince that will thus lightly lose his subjects, neither will I as yet lose thee; but since thou complainest of thy service and wages, be content to go back, and what our country will afford I do here promise to give thee.
 
@@ -108,7 +108,7 @@ Then did Christian draw, for he saw it was time to bestir him; and Apollyon as f
 クリスチャンは反撃しようと剣を抜いた。アポリュオンは目にもとまらぬ速さであられのように大量の矢を放った。クリスチャンは懸命に避けようとしたが、頭と手足に矢を受けてしまった。ふらつき、数歩後ろにさがった。アポリュオンはそれで油断し、クリスチャンは力を取り戻して全力で抵抗した。この激しい攻防は半日以上に及んだ。クリスチャンは消耗していた。受けた傷のせいでますます弱ってきた。
 
 Then Apollyon, espying his opportunity, began to gather up close to Christian, and wrestling with him, gave him a dreadful fall; and with that Christian’s sword flew out of his hand. Then said Apollyon, I am sure of thee now: and with that he had almost pressed him to death, so that Christian began to despair of life. But, as God would have it, while Apollyon was fetching his last blow, thereby to make a full end of this good man, Christian nimbly reached out his hand for his sword, and caught it, saying, Rejoice not against me, O mine enemy: when I fall, I shall arise, [Mic. 7:8]; and with that gave him a deadly thrust, which made him give back, as one that had received his mortal wound. Christian perceiving that, made at him again, saying, Nay, in all these things we are more than conquerors, through Him that loved us. [Rom. 8:37.] And with that Apollyon spread forth his dragon wings, and sped him away, that Christian saw him no more. [James 4:7.]
-そこでアポリュオンは隙を見てクリスチャンに詰め寄り、つかみかかってクリスチャンを投げ倒した。クリスチャンの握っていた剣は手から落ちてしまった。アポリュオンは勝ち誇った。「お前はもう負けだ」。そのままとどめを刺そうとした。クリスチャンはいのちが消えかけた。しかし、神の助けがあった。アポリュオンがこの善良な男のいのちを終わらせるために最後の一撃を喰らわせようとしたとき、クリスチャンはすばやく剣に手を伸ばし、つかんだ。「ああ、敵よ、私の仇となったことを喜ぶな。私は倒れてもまた起き上がる（ミカ7:8）」。アポリュオンに剣を突き刺した。アポリュオンはよろけた。致命傷を負ったのだ。クリスチャンはそうと知って再び立ち向かった。「いや、私たちは、これらすべてのことにあっても、圧倒的勝利者である（ローマ8:37）」。するとアポリュオンは竜の翼を広げて、飛び去った。クリスチャンはもう二度と彼を見なかった。（ヤコブ4:7）
+そこでアポリュオンは隙を見てクリスチャンに詰め寄り、つかみかかってクリスチャンを投げ倒した。クリスチャンの握っていた剣は手から落ちてしまった。アポリュオンは勝ち誇った。「お前はもう負けだ」。そのままとどめを刺そうとした。クリスチャンはいのちが消えかけた。しかし、神の助けがあった。アポリュオンがこの善良な男のいのちを終わらせるために最後の一撃を喰らわせようとしたとき、クリスチャンはすばやく剣に手を伸ばし、つかんだ。「ああ、敵よ、私の仇となったことを喜ぶな。私は倒れてもまた起き上がる（ミカ七・八）」。アポリュオンに剣を突き刺した。アポリュオンはよろけた。致命傷を負ったのだ。クリスチャンはそうと知って再び立ち向かった。「いや、私たちは、これらすべてのことにあっても、圧倒的勝利者である（ローマ八・三七）」。するとアポリュオンは竜の翼を広げて、飛び去った。クリスチャンはもう二度と彼を見なかった。（ヤコブ四・七）
 
 In this combat no man can imagine, unless he had seen and heard, as I did, what yelling and hideous roaring Apollyon made all the time of the fight; he spake like a dragon: and on the other side, what sighs and groans burst from Christian’s heart. I never saw him all the while give so much as one pleasant look, till he perceived he had wounded Apollyon with his two-edged sword; then, indeed, he did smile, and look upward! But it was the dreadfullest sight that ever I saw.
 

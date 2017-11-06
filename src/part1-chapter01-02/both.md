@@ -30,7 +30,7 @@ CHR. Fear followed me so hard that I fled the next way, and fell in.
 HELP. Then, said he, Give me thine hand: so he gave him his hand, and he drew him out, [Psalm 40:2], and he set him upon sound ground, and bid him go on his way.
 助力「それなら、手を出してください」
 
-クリスチャンが手を差し出すと、助力は彼を引っ張り出した（詩篇40:2）。彼を乾いた地に立たせ、続けて道を行くようにと諭した。
+クリスチャンが手を差し出すと、助力は彼を引っ張り出した（詩篇四〇・二）。彼を乾いた地に立たせ、続けて道を行くようにと諭した。
 
 Then I stepped to him that plucked him out, and said, "Sir, wherefore, since over this place is the way from the city of Destruction to yonder gate, is it, that this plat is not mended, that poor travellers might go thither with more security?" And he said unto me, "This miry slough is such a place as cannot be mended: it is the descent whither the scum and filth that attends conviction for sin doth continually run, and therefore it is called the Slough of Despond; for still, as the sinner is awakened about his lost condition, there arise in his soul many fears and doubts, and discouraging apprehensions, which all of them get together, and settle in this place: and this is the reason of the badness of this ground.
 夢の中で私は、クリスチャンを引き抜いた助力に歩み寄って、尋ねた。「すみません。ここは滅びの町から狭い門に続く道の途中だというのに、どうしてこの沼地を埋めないのですか。あわれな旅人がもっと安全に旅路を行けるように、工事したらよいではありませんか」
@@ -40,7 +40,7 @@ Then I stepped to him that plucked him out, and said, "Sir, wherefore, since ove
 「この泥沼は、埋め立てられるものではありません。この窪地には、罪の自覚にともなって出る残滓と汚物が流れ込んで集まっています。それで失望の沼と呼ばれています。罪人が自分の失われた状態に目覚めるとき、その魂に恐れ、疑い、心をくじくような思い煩いが起こってきます。それらがごちゃまぜになって、この場所に溜まっています。そういう理由で、ここはひどいありさまなのです。
 
 "It is not the pleasure of the King that this place should remain so bad. [Isa. 35:3,4.] His laborers also have, by the direction of his Majesty’ surveyors, been for above this sixteen hundred years employed about this patch of ground, if perhaps it might have been mended: yea, and to my knowledge," said he, "there have been swallowed up at least twenty thousand cart loads, yea, millions of wholesome instructions, that have at all seasons been brought from all places of the King’ dominions, (and they that can tell, say, they are the best materials to make good ground of the place,) if so be it might have been mended; but it is the Slough of Despond still, and so will be when they have done what they can.
-この場所をひどいまま放置するのは、王のみこころではありません（イザヤ35:3-4）。王の測量士の命により、百六十年以上もの間、この場所を埋め立てるために人が雇われています。私の知るところでは、少なくとも二万台の荷馬車が積み荷ごと飲み込まれました。荷馬車は何百万回もの計画的な命令によって、毎日のように王の国中から運ばれてきました。しかも、信頼できる筋によると、運搬された土は最高品質のものだそうです。そうして沼を埋め立てようとしているのですが、あいかわらず失望の沼は変わりません。できるかぎりのことをしても、ずっとこのままでしょう。
+この場所をひどいまま放置するのは、王のみこころではありません（イザヤ三五・三〜四）。王の測量士の命により、百六十年以上もの間、この場所を埋め立てるために人が雇われています。私の知るところでは、少なくとも二万台の荷馬車が積み荷ごと飲み込まれました。荷馬車は何百万回もの計画的な命令によって、毎日のように王の国中から運ばれてきました。しかも、信頼できる筋によると、運搬された土は最高品質のものだそうです。そうして沼を埋め立てようとしているのですが、あいかわらず失望の沼は変わりません。できるかぎりのことをしても、ずっとこのままでしょう。
 
 "True, there are, by the direction of the Lawgiver, certain good and substantial steps, placed even through the very midst of this slough; but at such time as this place doth much spew out its filth, as it doth against change of weather, these steps are hardly seen; or if they be, men, through the dizziness of their heads, step beside, and then they are bemired to purpose, notwithstanding the steps be there: but the ground is good when they are once got in at the gate." [1 Sam. 12:23.]
 本当は、この沼の真ん中にはきちんと舗装された歩道が敷かれています。立法者の命令で造られました。ですが、沼は大量のごみを吐き出しますし、天候によって様子がずいぶん変わりますから、その歩道は見えにくいのです。見えたとしても、そこを歩いていると頭がくらくらして、たいてい足を踏み外して泥まみれになります。それでも、歩道はあることにはあります。けれども、門を通過すればその先の大地は歩きやすくなります」

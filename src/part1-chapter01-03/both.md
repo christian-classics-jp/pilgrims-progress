@@ -13,7 +13,7 @@ WORLD. Hast thou a wife and children?
 世の賢者「あなたには、妻子はおられますか」
 
 CHR. Yes; but I am so laden with this burden, that I cannot take that pleasure in them as formerly: methinks I am as if I had none. [1 Cor. 7:29.]
-クリスチャン「います。ですが、この重荷があまりにもつらいので、家族と一緒にいる喜びを以前のように味わう余裕がなくなりました。まるで自分が何も持っていないように感じられます。」（第一コリント7:29）
+クリスチャン「います。ですが、この重荷があまりにもつらいので、家族と一緒にいる喜びを以前のように味わう余裕がなくなりました。まるで自分が何も持っていないように感じられます。」（第一コリント七・二九）
 
 WORLD. Wilt thou hearken to me, if I give thee counsel?
 世の賢者「私の話を聞いてもらえますか。助言できると思います」
@@ -81,7 +81,7 @@ WORLD. By that hill you must go, and the first house you come at is his.
 世の賢者「あの山のほうに向かってください。そうしたら通りの一軒目がその方のお宅です」
 
 So Christian turned out of his way to go to Mr. Legality’ house for help: but, behold, when he was got now hard by the hill, it seemed so high, and also that side of it that was next the way- side did hang so much over, that Christian was afraid to venture further, lest the hill should fall on his head; wherefore there he stood still, and wotted not what to do. Also his burden now seemed heavier to him than while he was in his way. There came also flashes of fire, [Ex. 19:16, 18], out of the hill, that made Christian afraid that he should be burnt: here therefore he did sweat and quake for fear. Heb. 12:21. And now he began to be sorry that he had taken Mr. Worldly Wiseman’ counsel; and with that he saw Evangelist coming to meet him, at the sight also of whom he began to blush for shame. So Evangelist drew nearer and nearer; and coming up to him, he looked upon him, with a severe and dreadful countenance, and thus began to reason with Christian.
-こうしてクリスチャンは道を変更して遵法の家に向かった。ところが、山のふもとに来ると彼は困難を感じた。山は高くそびえ立って見え、道の真横に崖がせり出していた。先に進むのは危険だと感じた。いまにも岩が頭上に落ちてきそうだった。クリスチャンは呆然と立ち尽くした。背中の重荷は、以前よりもずっしりと重くなっていた。山から炎も吹き出てきた（出エジプト19:16-18）。クリスチャンは、身が焼かれるのではないかと怯えた。ここに来て、恐怖で体が震えた（ヘブル12:21）。世の賢者の忠告に従ったことを後悔し始めた。そうこうしていると、向こうから伝道者がやってくるのが見えた。クリスチャンは恥ずかしくなって顔を真っ赤にした。伝道者はだんだんと近づいてきた。そして、彼の目の前に来て、きびしい表情でじっと見つめ、諭し始めた。
+こうしてクリスチャンは道を変更して遵法の家に向かった。ところが、山のふもとに来ると彼は困難を感じた。山は高くそびえ立って見え、道の真横に崖がせり出していた。先に進むのは危険だと感じた。いまにも岩が頭上に落ちてきそうだった。クリスチャンは呆然と立ち尽くした。背中の重荷は、以前よりもずっしりと重くなっていた。山から炎も吹き出てきた（出エジプト一九・一六〜一八）。クリスチャンは、身が焼かれるのではないかと怯えた。ここに来て、恐怖で体が震えた（ヘブル一二・二一）。世の賢者の忠告に従ったことを後悔し始めた。そうこうしていると、向こうから伝道者がやってくるのが見えた。クリスチャンは恥ずかしくなって顔を真っ赤にした。伝道者はだんだんと近づいてきた。そして、彼の目の前に来て、きびしい表情でじっと見つめ、諭し始めた。
 
 EVAN. What doest thou here, Christian? said he: at which words Christian knew not what to answer; wherefore at present he stood speechless before him. Then said Evangelist farther, Art not thou the man that I found crying without the walls of the city of Destruction?
 伝道者「クリスチャンさん、ここで何をしているのですか」
@@ -134,9 +134,9 @@ EVAN. Then said Evangelist, Stand still a little, that I show thee the words of 
 
 クリスチャンは恐れおののいた。伝道者は言った。
 
-『あなたがたは、語っておられるかたを拒むことがないように、注意しなさい。もし地上で御旨を告げた者を拒んだ人々が、罰をのがれることができなかったなら、天から告げ示すかたを退けるわたしたちは、なおさらそうなるのではないか』 （ヘブル12:25）
+『あなたがたは、語っておられるかたを拒むことがないように、注意しなさい。もし地上で御旨を告げた者を拒んだ人々が、罰をのがれることができなかったなら、天から告げ示すかたを退けるわたしたちは、なおさらそうなるのではないか』 （ヘブル一二・二五）
 
-『わが義人は、信仰によって生きる。もし信仰を捨てるなら、わたしのたましいはこれを喜ばない』 （ヘブル10:38）
+『わが義人は、信仰によって生きる。もし信仰を捨てるなら、わたしのたましいはこれを喜ばない』 （ヘブル一〇・三八）
 
 伝道者はこのことばを彼に当てはめた。
 
@@ -147,14 +147,14 @@ Then Christian fell down at his feet as dead, crying, Woe is me, for I am undone
 
 伝道者は彼の右手を握って、言った。
 
-『人には、その犯すすべての罪も神を汚す言葉も、ゆるされる』（マタイ12:31）
+『人には、その犯すすべての罪も神を汚す言葉も、ゆるされる』（マタイ一二・三一）
 
-『信じない者にならないで、信じる者になりなさい』（ヨハネ20:27）
+『信じない者にならないで、信じる者になりなさい』（ヨハネ二〇・二七）
 
 それで、クリスチャンは少し気色を回復して、立ち上がった。まださっきのように震えていた。
 
 Then Evangelist proceeded, saying, Give more earnest heed to the things that I shall tell thee of. I will now show thee who it was that deluded thee, and who it was also to whom he sent thee. The man that met thee is one Worldly Wiseman, and rightly is he so called; partly because he savoreth only the doctrine of this world, 1 John 4:5, (therefore he always goes to the town of Morality to church;) and partly because he loveth that doctrine best, for it saveth him best from the cross, Gal. 6:12: and because he is of this carnal temper, therefore he seeketh to pervert my ways, though right. Now there are three things in this man’ counsel that thou must utterly abhor.
-伝道者「あなたにこれからお話しすことをよく聞いてください。今、あなたを欺く者が誰であるのか、また彼があなたに会わせようとした者が誰であるのかをお話します。あなたが出会ったのは、世の賢者と呼ばれている者です。その名前の由来は、ひとつには、この世の教えにだけ精通しているからです（第一ヨハネ4:5）。だから、彼が道徳村の教会にいつも行くのです。もうひとつには、彼がこの世の教えを深く愛しているからです。この世の教えによって十字架から遠ざかるためです（ガラテヤ6:12）。さらにひとつには、彼が肉の性質から生まれた者だからです。ですから、彼が求めているのは、私の正しい道の邪魔をすることです。彼の助言において拒絶しなければならない三つのことを示します。
+伝道者「あなたにこれからお話しすことをよく聞いてください。今、あなたを欺く者が誰であるのか、また彼があなたに会わせようとした者が誰であるのかをお話します。あなたが出会ったのは、世の賢者と呼ばれている者です。その名前の由来は、ひとつには、この世の教えにだけ精通しているからです（第一ヨハネ四・五）。だから、彼が道徳村の教会にいつも行くのです。もうひとつには、彼がこの世の教えを深く愛しているからです。この世の教えによって十字架から遠ざかるためです（ガラテヤ六・一二）。さらにひとつには、彼が肉の性質から生まれた者だからです。ですから、彼が求めているのは、私の正しい道の邪魔をすることです。彼の助言において拒絶しなければならない三つのことを示します。
 
 1. His turning thee out of the way. 2. His laboring to render the cross odious to thee. 3. And his setting thy feet in that way that leadeth unto the administration of death.
 
@@ -165,18 +165,18 @@ Then Evangelist proceeded, saying, Give more earnest heed to the things that I s
 First, Thou must abhor his turning thee out of the way; yea, and thine own consenting thereto; because this is to reject the counsel of God for the sake of the counsel of a Worldly Wiseman. The Lord says, "Strive to enter in at the straight gate," [Luke 13:24], the gate to which I send thee; "for strait is the gate that leadeth unto life, and few there be that find it." [Matt. 7:13,14.] From this little wicket-gate, and from the way thereto, hath this wicked man turned thee, to the bringing of thee almost to destruction: hate, therefore, his turning thee out of the way, and abhor thyself for hearkening to him.
 第一に、あなたを道から外そうとした彼の助言を拒絶しなければなりません。そうです、あなた自身がそれに同意してしまいました。なぜなら、世の賢者の助言に従うことは神の助言を拒むことだからです。主は言われます。
 
-『狭い戸口からはいるように努めなさい』（ルカ13:24）
+『狭い戸口からはいるように努めなさい』（ルカ一三・二四）
 
-『狭い門からはいれ。滅びにいたる門は大きく、その道は広い。命にいたる門は狭く、その道は細い。そして、それを見いだす者が少ない』（マタイ7:13-14）
+『狭い門からはいれ。滅びにいたる門は大きく、その道は広い。命にいたる門は狭く、その道は細い。そして、それを見いだす者が少ない』（マタイ七・一三〜一四）
 
 この門に行くようにと私は案内しました。ところが、この悪い者は、この狭い門から、またそこに至る道から、あなたを外そうとしました。滅びの道へと至らせようとしたのです。だから、この道から外そうとした彼の助言を憎み、彼に聞き従うことを拒絶しなければなりません。
 
 Secondly, Thou must abhor his laboring to render the cross odious unto thee; for thou art to prefer it before the treasures of Egypt. [Heb. 11:25,26.] Besides, the King of glory hath told thee, that he that will save his life shall lose it. And he that comes after him, and hates not his father, and mother, and wife, and children, and brethren, and sisters, yea, and his own life also, he cannot be his disciple. [Mark 8:38; John 12:25; Matt. 10:39; Luke 14:26.] I say, therefore, for a man to labor to persuade thee that that shall be thy death, without which, the truth hath said, thou canst not have eternal life, this doctrine thou must abhor.
-第二に、十字架を嫌悪させようとした彼の働きを拒絶しなければなりません。なぜなら、エジプトの宝を前にしても、十字架をそれにまさる富と思うべきだからです（ヘブル11:25-26）。それに、栄光の王はあなたにこう言われました。
+第二に、十字架を嫌悪させようとした彼の働きを拒絶しなければなりません。なぜなら、エジプトの宝を前にしても、十字架をそれにまさる富と思うべきだからです（ヘブル一一・二五〜二六）。それに、栄光の王はあなたにこう言われました。
 
-『自分のいのちを救う者はそれを失う』（マルコ8:38、ヨハネ12:25、マタイ10:39）
+『自分のいのちを救う者はそれを失う』（マルコ八・三八、ヨハネ一二・二五、マタイ一〇・三九）
 
-『だれでも、父、母、妻、子、兄弟、姉妹、さらに自分の命までも捨てて、わたしのもとに来るのでなければ、わたしの弟子となることはできない』（ルカ14:26）
+『だれでも、父、母、妻、子、兄弟、姉妹、さらに自分の命までも捨てて、わたしのもとに来るのでなければ、わたしの弟子となることはできない』（ルカ一四・二六）
 
 彼はあなたにこのままでは死んでしまうと説得したわけですが、真理のことばによると、それなくしては永遠のいのちを得られません。だから、あなたはこの教えを拒絶しなければなりません。
 
@@ -184,13 +184,13 @@ Thirdly, Thou must hate his setting of thy feet in the way that leadeth to the m
 第三に、あなたの足を死の支配するところに向かわせようとした彼の働きを憎まなければなりません。考えてご覧なさい。彼はあなたを人のところに案内しようとしましたが、人にはあなたを重荷から解放する力はありません。
 
 He to whom thou wast sent for ease, being by name Legality, is the son of the bond-woman which now is, and is in bondage with her children, Gal. 4:21-27, and is, in a mystery, this Mount Sinai, which thou hast feared will fall on thy head. Now if she with her children are in bondage, how canst thou expect by them to be made free? This Legality, therefore, is not able to set thee free from thy burden. No man was as yet ever rid of his burden by him; no, nor ever is like to be: ye cannot be justified by the works of the law; for by the deeds of the law no man living can be rid of his burden: Therefore Mr. Worldly Wiseman is an alien, and Mr. Legality is a cheat; and for his son Civility, notwithstanding his simpering looks, he is but a hypocrite, and cannot help thee. Believe me, there is nothing in all this noise that thou hast heard of these sottish men, but a design to beguile thee of thy salvation, by turning thee from the way in which I had set thee. After this, Evangelist called aloud to the heavens for confirmation of what he had said; and with that there came words and fire out of the mountain under which poor Christian stood, which made the hair of his flesh stand up. The words were pronounced: "As many as are of the works of the law, are under the curse; for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them." [Gal. 3:10.]
-あなたが助けを求めに行った人は、名前を遵法といいます。彼は、奴隷の女の子供です。彼女は今も奴隷であり、その子供たちも奴隷です（ガラテヤ4:21-27）。そして、あなたが頭上に落ちてくるのではないかと恐れた山は、シナイ山です。彼女とその子供が奴隷として束縛されているとしたら、あなたは彼らの助けによって自由になることを期待できるでしょうか。ですから、この遵法という者は、あなたを重荷から解放できません。誰であれ、人が重荷を取り去ることはできませんでした。これからもできないでしょう。ですから、世の賢者は異邦人であり、遵法は詐欺師です。彼の息子である礼節は、作り笑顔をこさえていますが、偽善者にすぎません。あなたを助けられません。
+あなたが助けを求めに行った人は、名前を遵法といいます。彼は、奴隷の女の子供です。彼女は今も奴隷であり、その子供たちも奴隷です（ガラテヤ四・二一〜二七）。そして、あなたが頭上に落ちてくるのではないかと恐れた山は、シナイ山です。彼女とその子供が奴隷として束縛されているとしたら、あなたは彼らの助けによって自由になることを期待できるでしょうか。ですから、この遵法という者は、あなたを重荷から解放できません。誰であれ、人が重荷を取り去ることはできませんでした。これからもできないでしょう。ですから、世の賢者は異邦人であり、遵法は詐欺師です。彼の息子である礼節は、作り笑顔をこさえていますが、偽善者にすぎません。あなたを助けられません。
 
 私を信じなさい。これら愚かな者たちの雑言の中には、私がお伝えした道から外させて、あなたに救いを得させないように欺く意図しかありません」
 
 それから、伝道者は天を見上げて、彼が話したことの確証を大声で求めた。すると、あわれなクリスチャンがそのふもとにいる山から、ことばと火が来た。クリスチャンは全身の毛が立つのを感じた。次のようなことばが聞こえた。
 
-『律法の行いによる者は、皆のろいの下にある。「律法の書に書いてあるいっさいのことを守らず、これを行わない者は、皆のろわれる」と書いてあるからである』（ガラテヤ3:10）
+『律法の行いによる者は、皆のろいの下にある。「律法の書に書いてあるいっさいのことを守らず、これを行わない者は、皆のろわれる」と書いてあるからである』（ガラテヤ三・一〇）
 
 Now Christian looked for nothing but death, and began to cry out lamentably; even cursing the time in which he met with Mr. Worldly Wiseman; still calling himself a thousand fools for hearkening to his counsel. He also was greatly ashamed to think that this gentleman’ arguments, flowing only from the flesh, should have the prevalency with him so far as to cause him to forsake the right way. This done, he applied himself again to Evangelist in words and sense as follows.
 クリスチャンは死んでしまいたくなって、悲しみ嘆き始めた。世の賢者との会話を悔やんだ。彼の助言に聞き従ったことは愚か者千人分に匹敵すると思った。また、世の賢者との議論を思い出して、非常に恥じた。肉に流されて、正しい道を捨ててしまったのだ。それから、彼は伝道者を見つめて言葉を待ち、その導きに従おうと心に決めた。
@@ -199,4 +199,4 @@ CHR. Sir, what think you? Is there any hope? May I now go back, and go up to the
 クリスチャン「先生、どう思われますか。希望はあるのでしょうか。立ち返って、狭い門に向かってもよろしいのでしょうか。これだけのことをしても、私は見捨てられず、恥はすすがれるのでしょうか。私は世の賢者に聞き従ったことを悔いています。私の罪はゆるされるでしょうか」
 
 EVAN. Then said Evangelist to him, Thy sin is very great, for by it thou hast committed two evils: thou hast forsaken the way that is good, to tread in forbidden paths. Yet will the man at the gate receive thee, for he has good-will for men; only, said he, take heed that thou turn not aside again, lest thou "perish from the way, when his wrath is kindled but a little." [Psalm 2:12.]
-伝道者「あなたの罪は確かに大きい。二つの悪を犯したからです。あなたは、良い道を捨て、さらに禁じられた道に足を踏み入れました。しかし、門の守衛はあなたを受け入れてくれるでしょう。彼は優しい人だから。ただ、二度と道を外さないように気をつけなさい。『さもないと、主は怒って、あなたを道で滅ぼされるであろう。その憤りがすみやかに燃えるからである』（詩篇2:12）」
+伝道者「あなたの罪は確かに大きい。二つの悪を犯したからです。あなたは、良い道を捨て、さらに禁じられた道に足を踏み入れました。しかし、門の守衛はあなたを受け入れてくれるでしょう。彼は優しい人だから。ただ、二度と道を外さないように気をつけなさい。『さもないと、主は怒って、あなたを道で滅ぼされるであろう。その憤りがすみやかに燃えるからである』（詩篇二・一二）」

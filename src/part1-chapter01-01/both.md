@@ -1,9 +1,9 @@
 # （一） 滅びの町からの旅立ち
 
 As I walk'd through the wilderness of this world, I lighted on a certain place, where was a Denn; And I laid me down in that place to sleep: And as I slept I dreamed a Dream. I dreamed, and behold I saw a Man cloathed with Raggs, standing in a certain place, with his face from his own House, a Book in his hand, and a great burden upon his Back. [Isa 64.6; Luke 14.33; Psalm 38.4; Hab. 2.2; Act. 16.30,31] I looked and saw him open the Book, and Read therein; and as he read, he wept and trembled: and not being able longer to contain, he brake out with a lamentable cry; saying, what shall I do?
-私はこの世の荒野を歩いていた。ある洞窟にたどりつき、その中で横になって寝た。眠っているあいだに夢を見た。夢の中で、ぼろぼろの服を着た男が、ある場所に立っていた。彼は、顔を自分の家のほうに向けず、手に一冊の本を持っていて、背中に大きな重荷を負っていた（イザヤ64:6、ルカ14:33、詩篇38:4、ハバクク2:2、使徒16:30-31）。見ていると、彼は本を開いて読んだ。読んでいるうちに、さめざめと涙を流し、がたがたと震えた。それから、ついにこらえきれなくなって、悲痛な叫びをあげた。
+私はこの世の荒野を歩いていた。ある洞窟にたどりつき、その中で横になって寝た。眠っているあいだに夢を見た。夢の中で、ぼろぼろの服を着た男が、ある場所に立っていた。彼は、顔を自分の家のほうに向けず、手に一冊の本を持っていて、背中に大きな重荷を負っていた（イザヤ六四・六、ルカ一四・三三、詩篇三八・四、ハバクク二・二、使徒一六・三〇〜三一）。見ていると、彼は本を開いて読んだ。読んでいるうちに、さめざめと涙を流し、がたがたと震えた。それから、ついにこらえきれなくなって、悲痛な叫びをあげた。
 
-「私はどうすればよいのか！」（使徒2:37）
+「私はどうすればよいのか！」（使徒二・三七）
 
 In this plight therefore he went home, and refrained himself as long as he could, that his Wife and Children should not perceive his distress; but he could not be silent long, because that his trouble increased: wherefore at length he brake his mind to his Wife and Children; and thus he began to talk to them, O my dear Wife, said he, and you the Children of my bowels, I your dear friend am in my self undone, by reason of a burden that lieth hard upon me: moreover, I am for certain informed, that this our City will be burned with fire from Heaven, in which fearful overthrow, both my self, with thee, my Wife, and you my sweet babes, shall miserably come to ruine; except (the which, yet I see not) some way of escape can be found, whereby we may be delivered. At this his Relations were sore amazed; not for that they believed, that what he had said to them was true, but because they thought, that some frenzy distemper had got into his head: therefore, it drawing towards night, and they hoping that sleep might settle his brains, with all hast they got him to bed; but the night was as troublesome to him as the day: wherefore instead of sleeping, he spent it in sighs and tears. So when the morning was come, they would know how he did; and he told them worse and worse. He also set to talking to them again, but they began to be hardened; they also thought to drive away his distemper by harsh and surly carriages to him: sometimes they would deride, sometimes they would chide, and sometimes they would quite neglect him: wherefore he began to retire himself to his Chamber to pray for, and pity them; and also to condole his own misery: he would also walk solitarily in the Fields, sometimes reading, and sometimes praying: and thus for some days he spent his time.
 彼はこうして煩悶しながら家に帰った。妻と子供に自分の苦悩を悟られまいと、できるかぎり平静をよそおった。だが、苦悩はつのるばかりで、沈黙を保っていられなくなった。それでついに、胸中を妻と子供に打ち明けた。彼はこう話し始めた。
@@ -28,14 +28,14 @@ I saw also that he looked this way, and that way, as if he would run; yet he sto
 
 彼は答えた。
 
-「先生、この手にある本を読んでいてわかったのです。私には死ぬことと、死後裁きを受けることが定められています。（ヘブル9:27）かといって、死ぬのも嫌ですし（ヨブ16:21-22）、裁きにあうのも勘弁願いたいのです(エゼキエル22:14)」
+「先生、この手にある本を読んでいてわかったのです。私には死ぬことと、死後裁きを受けることが定められています。（ヘブル九・二七）かといって、死ぬのも嫌ですし（ヨブ一六・二一〜二二）、裁きにあうのも勘弁願いたいのです（エゼキエル二二・一四）」
 
 Then said Evangelist, Why not willing to die? since this life is attended with so many evils? The Man answered, Because, I fear that this burden that is upon my back, will sink me lower then the Grave; and I shall fall into Tophet [Isa. 30.33]. And Sir, if I be not fit to go to Prison, I am not fit (I am sure) to go to Judgement, and from thence to Execution; and the thoughts of these things make me cry.
 伝道者は尋ねた。
 
 「どうして死ぬのが嫌なのですか。この世の生は悪に満ちているではありませんか」
 
-「この背中に載っている重荷のせいです。これが私を墓よりも低いところへと沈めてしまうのではないかと思うと怖いのです。私はトフェテ(地獄)にくだります(イザヤ30:33)。先生、牢屋に入るのでさえ嫌なのですから、裁きにあって地獄の刑罰を受けるのはなおさら嫌です。しかし、間違いなく私は地獄行きです。そんなことを考えて泣いているのです」
+「この背中に載っている重荷のせいです。これが私を墓よりも低いところへと沈めてしまうのではないかと思うと怖いのです。私はトフェテ（地獄）にくだります（イザヤ三〇・三三）。先生、牢屋に入るのでさえ嫌なのですから、裁きにあって地獄の刑罰を受けるのはなおさら嫌です。しかし、間違いなく私は地獄行きです。そんなことを考えて泣いているのです」
 
 Then said Evangelist, If this be thy condition, why standest thou still? He answered, Because I know not whither to go, Then he gave him a Parchment-Roll, and there was written within, Fly from the wrath to come [Matt. 3.7].
 
@@ -49,7 +49,7 @@ Then said Evangelist, If this be thy condition, why standest thou still? He answ
 
 それを聞いて、伝道者は、羊皮紙の巻物を手渡した。そこにはこう書かれていた。
 
-『やがて来る御怒りから逃れよ』(マタイ3:7)
+『やがて来る御怒りから逃れよ』（マタイ三・七）
 
 The Man therefore Read it, and looking upon Evangelist very carefully; said, Whither must I fly? Then said Evangelist, pointing with his finger over a very wide Field, Do you see yonder Wicket-gate? [Mat. 7] The Man said, No. Then said the other, Do you see yonder shining light? [Psalm 119.105; 2 Pet. 1.19.] He said, I think I do. Then said Evangelist, Keep that light in your eye, and go up directly thereto, so shalt thou see the Gate; at which when thou knockest, it shall be told thee what thou shalt do.
 男はそれを読み、それから伝道者をまじまじと見つめた。
@@ -62,22 +62,22 @@ The Man therefore Read it, and looking upon Evangelist very carefully; said, Whi
 
 「いいえ」
 
-「では、あそこにある輝く光は見えますか」（詩篇119:105、第二ペテロ1:19）
+「では、あそこにある輝く光は見えますか」（詩篇一一九・一〇五、第二ペテロ一・一九）
 
 「はい、見えると思います」
 
 「あの光から目を離さずに、まっすぐにそちらに向かって行ってください。そうすれば、狭き門が見えてきます。その扉を叩けば、そこであなたがすべきことを教えてくれます」
 So I saw in my Dream that the Man began to run; Now he had not run far from his own door, but his Wife and Children perceiving it, began to cry after him to return: [Luke 14.26] but the Man put his fingers in his Ears, and ran on crying, Life, life, Eternal Life: so he looked not behind him [Gen. 19.17.], but fled towards the middle of the Plain.
 
-私は夢の中で見ていた。男は走りだした。その場所は自分の家からそれほど離れていなかったが、妻と子供は気づき、彼に「帰ってきなさい」と大声で呼びかけた。（ルカ14:26）だが、彼は耳を指でふさいで、こう叫びながら走った。
+私は夢の中で見ていた。男は走りだした。その場所は自分の家からそれほど離れていなかったが、妻と子供は気づき、彼に「帰ってきなさい」と大声で呼びかけた。（ルカ一四・二六）だが、彼は耳を指でふさいで、こう叫びながら走った。
 
-「いのち！ いのち！ 永遠のいのち！」
+「いのち！　いのち！　永遠のいのち！」
 
-彼は後ろを振り返らなかった。（創世記19:17）平野の真ん中に向かって無我夢中で走っていった。
+彼は後ろを振り返らなかった。（創世記一九・一七）平野の真ん中に向かって無我夢中で走っていった。
 
 The Neighbors also came out to see him run [Jer. 20.10.], and as he ran, some mocked, others threatned; and some cried after him to return: Now among those that did so, there were two that were resolved to fetch him back by force. The name of the one was Obstinate, and the name of the other Pliable. Now by this time the Man was got a good distance from them; But however they were resolved to pursue him; which they did and in a little time they over-took him. Then said the Man, Neighbours, Wherefore are you come? They said, To perswade you to go back with us; but he said, That can by no means be: You dwell, said he, in the City of Destruction, (the place also where I was born) I see it to be so; and dying there, sooner or later, you will sink lower than the Grave, into a place that burns with Fire and Brimstone: Be content good Neighbours, and go along with me.
 
-近所の人たちも彼が走っているのを見ようとぞろぞろと出てきた。（エレミヤ20:10）彼の走る姿を見て、ある者は馬鹿にして笑い、ある者は怯えた。ある者は帰ってくるように呼びかけた。さて、そうした者たちの中で、二人の人が力づくで彼を戻そうと決心した。一人はの名前は〈強情〉、もう一人は〈軟弱〉といった。彼は、二人からもうすっかり離れたところにいた。けれども、二人は追いかけることにした。しばらく走っていると、彼に追いついた。彼は尋ねた。
+近所の人たちも彼が走っているのを見ようとぞろぞろと出てきた。（エレミヤ二〇・一〇）彼の走る姿を見て、ある者は馬鹿にして笑い、ある者は怯えた。ある者は帰ってくるように呼びかけた。さて、そうした者たちの中で、二人の人が力づくで彼を戻そうと決心した。一人はの名前は〈強情〉、もう一人は〈軟弱〉といった。彼は、二人からもうすっかり離れたところにいた。けれども、二人は追いかけることにした。しばらく走っていると、彼に追いついた。彼は尋ねた。
 
 「隣人どの、どこに行かれるのですか」
 
@@ -90,24 +90,24 @@ The Neighbors also came out to see him run [Jer. 20.10.], and as he ran, some mo
 What! said Obstinate, and leave our Friends, and our Comforts behind us!
 強情が答えた。
 
-「なんだって！ 友を捨てよと、私たちの後ろの快適な生活を捨てよとおっしゃるのか」
+「なんだって！　友を捨てよと、私たちの後ろの快適な生活を捨てよとおっしゃるのか」
 
 Yes, said Christian, (for that was his name) because that all, which you shall forsake, [2 Cor. 4.18,] is not worthy to be compared with a little of that that I am seeking to enjoy, and if you will go along with me, and hold it, you shall fare as I myself; for there where I go, is enough [Luke 15.], and to spare; Come away, and prove my words.
 クリスチャン（それが彼の名前である）は言った。
 
-「そうです。あなたが捨てるものは（第二コリント4:18）、私が探し求めているものの楽しみと比べたら、取るに足りません。私と一緒に来て、それを得られれば、私と同じように行きたくなるに違いありません。私が行こうとしている場所は、あり余るほど十分にあります（ルカ15:17）。さあ、来てください。私の言っていることが間違いないとわかるはずです。」
+「そうです。あなたが捨てるものは（第二コリント四・一八）、私が探し求めているものの楽しみと比べたら、取るに足りません。私と一緒に来て、それを得られれば、私と同じように行きたくなるに違いありません。私が行こうとしている場所は、あり余るほど十分にあります（ルカ一五・一七）。さあ、来てください。私の言っていることが間違いないとわかるはずです。」
 
 Obst. What are the things you seek, since you leave all the world to find them?
 強情「いったい何を探し求めているのですか。それを見つけるために、この世のすべてを置いて行くほどのものですか」
 
 Chr. I seek an Inheritance, incorruptible, undefiled, and that fadeth not away [1 Peter 1.4]; and it is laid up in Heaven, and fast there [Heb. 11:16], to be bestowed at the time appointed, on them that diligently seek it. Read it so, if you will, in my Book.
-クリスチャン「私が探し求めているのは、朽ちることのなく、傷もしみもない、消えていくことのない相続財産です（第一ペテロ1:4）。それは天にあって、かたく保たれています（ヘブル11:16）。真摯に求める者には、定められた時に、それが与えられます。私の本にそう書いてあります」
+クリスチャン「私が探し求めているのは、朽ちることのなく、傷もしみもない、消えていくことのない相続財産です（第一ペテロ一・四）。それは天にあって、かたく保たれています（ヘブル一一・一六）。真摯に求める者には、定められた時に、それが与えられます。私の本にそう書いてあります」
 
 Obst. Tush, said Obstinate, away with your Book; will you go back with us, or no?
-強情「フン！ そんな本は捨ててしまえ。俺たちと一緒に戻るのか、それとも戻らないのか」
+強情「フン！　そんな本は捨ててしまえ。俺たちと一緒に戻るのか、それとも戻らないのか」
 
 Chr. No, not I, said the other; because I have laid my hand to the Plow [Luke 9.62.].
-クリスチャン「戻りません。私はすでに手をすきにかけたものですから（ルカ9:62）」
+クリスチャン「戻りません。私はすでに手をすきにかけたものですから（ルカ九・六二）」
 
 Obst. Come then, Neighbour Pliable, let us turn again, and go home without him; there is a company of these Craz'd-headed Coxcombs, that when they take a fancy by the end, are wiser in their own eyes then seven men that can render a reason.
 強情「軟弱よ、さあ戻ろう。この男は置いていこう。ここにいるのは、知性のある七人をたばねても自分のほうが賢いと思い込んでいる、頭のおかしな馬鹿者の仲間だ」
@@ -116,10 +116,10 @@ Pli. Then said Pliable, Don’t revile; if what the good Christian says is true,
 軟弱「いや、悪く言ってはいけないよ。この善良なクリスチャンの言っていることがもしも真実だったら、僕らの持ち物よりも素晴らしいものを彼は持っているんだから。僕の心はこの隣人と一緒に行きたがっているんだ」
 
 Obst. What! more Fools still? be ruled by me and go back; who knows whither such a brain- sick fellow will lead you? Go back, go back, and be wise.
-強情「何だって！ お前もおかしくなったのか。俺の言うことを聞け。戻るんだ。こんな頭のおかしな奴についていったら、どうなるかわかったもんじゃない。さあ帰った帰った。よく考えろ」
+強情「何だって！　お前もおかしくなったのか。俺の言うことを聞け。戻るんだ。こんな頭のおかしな奴についていったら、どうなるかわかったもんじゃない。さあ帰った帰った。よく考えろ」
 
 Chr. Come with me Neighbour Pliable, there are such things to be had which I spoke of, and many more Glories besides; If you believe not me, read here in this Book; and for the truth of what is exprest therein, behold, all is confirmed by the blood of him that made it [Heb. 13.20,21.].
-クリスチャン「軟弱さん、私と行きましょう。私が話したものだけでなく、さらに栄光あるものを得られます。もし私を信じられないなら、この本を読んでごらんなさい。書かれていることが真実である証拠に、ほら、すべての箇所がこれを書いた方の血によって保証されています(ヘブル13:20-21)」
+クリスチャン「軟弱さん、私と行きましょう。私が話したものだけでなく、さらに栄光あるものを得られます。もし私を信じられないなら、この本を読んでごらんなさい。書かれていることが真実である証拠に、ほら、すべての箇所がこれを書いた方の血によって保証されています（ヘブル一三・二〇〜二一）」
 
 Pli. Well Neighbour Obstinate (said Pliable) I begin to come to a point; I intend to go along with this good man, and to cast in my lot with him: But my good Companion, do you know the way to this desired place?
 軟弱「ええと、強情さん、僕はもう腹が決まりました。この善良なお方について行って、運命を共にします。でも、クリスチャンさん、あなたはこの望みの地に行く道をご存知なのですか」
@@ -151,37 +151,37 @@ Pli. And do you think that the words of your Book are certainly true?
 軟弱「この本が、完全に真実を語っているとお考えなのですか」
 
 Chr. Yes verily, for it was made by him that cannot lye [Tit. 1.2.].
-クリスチャン「はい、まったくそのとおりです。偽ることのできない方が語ったおことばですから(テトス1:2)」
+クリスチャン「はい、まったくそのとおりです。偽ることのできない方が語ったおことばですから（テトス一・二）」
 
 Pli. Well said; what things are they?
 軟弱「では、どんなことが書かれているのですか」
 
 Chr. There is an endless Kingdom to be Inhabited, and everlasting life to be given us; that we may Inhabit that Kingdom for ever [Isa. 45.17. John 10.27,28,29.]
-クリスチャン「私たちの住まいとなる永遠の御国、私たちに与えられる永遠のいのちです。私たちは永遠にその御国に住まうようになります(イザヤ45:17、ヨハネ10:27-29)」
+クリスチャン「私たちの住まいとなる永遠の御国、私たちに与えられる永遠のいのちです。私たちは永遠にその御国に住まうようになります（イザヤ四五・一七、ヨハネ一〇・二七〜二九）」
 
 Pli. Well said, and what else?
 軟弱「そうですか。他には何がありますか」
 
 Chr. There are Crowns of Glory to be given us; and Garments that will make us shine like the Sun in the Firmament of Heaven [2 Tim. 4.8. Rev. 3.4. Matth. 13.]
-クリスチャン「私たちに与えられる栄光の王冠です。私たちに着せられる衣が天の大空にある太陽のように光り輝きます(第二テモテ4:8、黙示録3:4、マタイ13:43)」
+クリスチャン「私たちに与えられる栄光の王冠です。私たちに着せられる衣が天の大空にある太陽のように光り輝きます（第二テモテ四・八、黙示録三・四、マタイ一三・四三）」
 
 Pli. This is excellent; And what else?
 軟弱「最高ですね。他にはどうですか」
 
 Chr. There shall be no more crying, nor sorrow; For he that is owner of the place, will wipe all tears from our eyes [Isa. 25.8. Rev. 7.16,17. Chap. 21.4.].
-クリスチャン「もはや涙も悲しみもありません。その場所の主人である方が、すべての涙を私たちの目からぬぐい去ってくださるからです(イザヤ25:8、黙示録7:16-17、黙示録21:4)」
+クリスチャン「もはや涙も悲しみもありません。その場所の主人である方が、すべての涙を私たちの目からぬぐい去ってくださるからです（イザヤ二五・八、黙示録七・一六〜一七、黙示録二一・四）」
 
 Pli. And what company shall we have there?
 軟弱「それで、そこではどんなお仲間がいらっしゃるのですか」
 
 Chr. There we shall be with Seraphims, and Cherubins [Isa. 6.2. 1 Thess. 4.16,17. Rev. 5.11.], Creatures that will dazle your eyes to look on them: There also you shall meet with thousands, and ten thousands that have gone before us to that place; none of them are hurtful, but loving, and holy; every one walking in the sight of God; and standing in his presence with acceptance for ever: In a word, there we shall see the Elders with their Golden Crowns [Rev. 4:4]: There we shall see the Holy Virgins with their Golden Harps [Chap. 14.1,2,3,4,5.]. There we shall see Men that by the World were cut in pieces, burnt in flames, eaten of Beasts, drownded in the Seas, for the love that they bare to the Lord of the place [John 12.25.]; all well, and cloathed with Immortality, as with a Garment [2 Cor. 5.2,3,5.].
-クリスチャン「セラフィム、ケルビム（イザヤ6:2、テサロニケ4:16-17、黙示録5:11）、見るもまばゆい生き物が一緒にいます。そこでは、私たちよりも先にそこに行った、何千、何万もの仲間にも出会うでしょう。誰一人としていじわるな者はおらず、愛があり、聖なる者たちばかりです。誰もが、神の御目にかなって歩み、神の御前で永遠に受け入れられています。つまり、金の王冠をかぶった長老たちに会います。金の竪琴を持った聖なる乙女たちに会います（黙示録14:1-5）。主を愛するゆえに世によって切り裂かれた者、火で焼かれた者、獣の餌となった者、海に投げ込まれた者に会います（ヨハネ12:25）。皆、服を着るように不死を着せられています（第二コリント5:2-5）」
+クリスチャン「セラフィム、ケルビム（イザヤ六・二、テサロニケ四・一六〜一七、黙示録五・一一）、見るもまばゆい生き物が一緒にいます。そこでは、私たちよりも先にそこに行った、何千、何万もの仲間にも出会うでしょう。誰一人としていじわるな者はおらず、愛があり、聖なる者たちばかりです。誰もが、神の御目にかなって歩み、神の御前で永遠に受け入れられています。つまり、金の王冠をかぶった長老たちに会います。金の竪琴を持った聖なる乙女たちに会います（黙示録一四・一〜五）。主を愛するゆえに世によって切り裂かれた者、火で焼かれた者、獣の餌となった者、海に投げ込まれた者に会います（ヨハネ一二・二五）。皆、服を着るように不死を着せられています（第二コリント五・二〜五）」
 
 Pli. The hearing of this is enough to ravish ones heart; but are these things to be enjoyed? how shall we get to be Sharers hereof?
 軟弱「それを聞くだけでもう心が踊りますね。でも、それは楽しいのでしょうか。どうしたらそのすべてを得られるのでしょうか」
 
 Chr. The Lord, the Governour of that Countrey, hath Recorded that in this Book [Isa. 55.12. John 7.37. Chap. 6.37. Rev. 21.6. Chap. 22.17.]: The substance of which is, If we be truly willing to have it, he will bestow it upon us freely.
-クリスチャン「かの御国の支配者である主が、この本に書き記してくださいました（イザヤ55:12、ヨハネ7:37、黙示録6:37、黙示録21:6、黙示録22:17）。その要点は、私たちがそれを真摯に求めるなら、主が私たちに気前よく与えてくださるということです」
+クリスチャン「かの御国の支配者である主が、この本に書き記してくださいました（イザヤ五五・一二、ヨハネ七・三七、黙示録六・三七、黙示録二一・六、黙示録二二・一七）。その要点は、私たちがそれを真摯に求めるなら、主が私たちに気前よく与えてくださるということです」
 
 Pli. Well, my good Companion, glad am I to hear of these things: Come on, let us mend our pace.
 軟弱「ああ、お仲間さん、それを聞いて嬉しくなりました。さあ、急ぎましょう」
