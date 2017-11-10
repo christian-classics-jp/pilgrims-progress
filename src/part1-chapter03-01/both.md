@@ -1,65 +1,101 @@
+# （十三）　忠実
 [Faithful]
+
 Now, as Christian went on his way, he came to a little ascent, which was cast up on purpose that pilgrims might see before them: up there, therefore, Christian went; and looking forward, he saw Faithful before him upon his journey: Then said Christian aloud, Ho, ho; so-ho; stay, and I will be your companion. At that Faithful looked behind him; to whom Christian cried again, Stay, stay, till I come up to you. But Faithful answered, No, I am upon my life, and the avenger of blood is behind me.
+クリスチャンが旅路を進むと、小高い丘を見つけた。巡礼者が先を見渡すための見晴らし台だった。クリスチャンは登って、行く先を見渡した。すると前方に〈忠実〉がいた。クリスチャンは大声で呼びかけた。「おーい、おーい。待ってください。一緒に行かせてください」。忠実の返事は、しかし、こうだった。「やめてください、私はまだ生きたいのです。血の復讐が後ろから来るとは」
 
 At this Christian was somewhat moved, and putting to all his strength, he quickly got up with Faithful, and did also overrun him; so the last was first. Then did Christian vaingloriously smile, because he had gotten the start of his brother; but not taking good heed to his feet, he suddenly stumbled and fell, and could not rise again until Faithful came up to help him.
+クリスチャンはたまらなくなって、全力で駆け出した。あっという間に忠実に追いつき、それから追い越した。後の者が先になった。兄弟の先を行ったので、クリスチャンはにやりと笑った。けれども、足元をよく見ていなかったので、思いがけず転んで倒れてしまった。結局、忠実が助けに来るまで起き上がることができなかった。
 
 Then I saw in my dream, they went very lovingly on together, and had sweet discourse of all things that had happened to them in their pilgrimage; and thus Christian began.
+私が夢の中で見ていると、二人は仲睦まじく一緒に歩き、これまで旅路で起こったことを親しく話した。
 
 CHR. My honored and well-beloved brother Faithful, I am glad that I have overtaken you, and that God has so tempered our spirits that we can walk as companions in this so pleasant a path.
+クリスチャン「敬愛する兄弟、忠実さん。あなたを一度追い越したのは正解でしたね。神が私たちの霊を和ませてくださったので、こうして楽しく一緒に歩くことができました」
 
 FAITH. I had thought, my dear friend, to have had your company quite from our town, but you did get the start of me; wherefore I was forced to come thus much of the way alone.
+忠実「親愛なる友、クリスチャンさん。本当に、故郷の町から来た追手かと思いましたが、あなたは私の前を通り過ぎて行きましたね。私はここまでほとんどひとりで進むしかなかったものですから」
 
 CHR. How long did you stay in the city of Destruction before you set out after me on your pilgrimage?
+クリスチャン「〈滅びの町〉にはどれくらいおられたのですか。私の後に旅に出るまでに」
 
-FAITH. Till I could stay no longer; for there was a great talk presently after you were gone out, that our city would, in a short time, with fire from heaven, be burnt down to the ground. CHR. What, did your neighbors talk so?
+FAITH. Till I could stay no longer; for there was a great talk presently after you were gone out, that our city would, in a short time, with fire from heaven, be burnt down to the ground.
+忠実「まもなく出ざるをえませんでした。あなたが出て行った後、天から火が降ってすぐにもこの町は焼け野原になる、という話を随所で聞きましたから」
+
+CHR. What, did your neighbors talk so?
+クリスチャン「そうなのですか。近所の方々がそう話したのですか」
 
 FAITH. Yes, it was for a while in every body’s mouth.
+忠実「そうです。皆が口々に言っていました」
 
 CHR. What, and did no more of them but you come out to escape the danger?
+クリスチャン「驚きです。あなただけが危難から逃れて、他の人は何もしなかったのですか」
 
 FAITH. Though there was, as I said, a great talk thereabout, yet I do not think they did firmly believe it; for, in the heat of the discourse, I heard some of them deridingly speak of you and of your desperate journey, for so they called this your pilgrimage. But I did believe, and do still, that the end of our city will be with fire and brimstone from above; and therefore I have made my escape.
+忠実「申し上げたとおり皆がその噂に夢中でしたが、誰も本当には信じていないようでした。その噂の熱にまぎれて、あなたのことやあなたの絶望的な旅のことを噂する者もいました。絶望的な旅、とそう言っていました。でも、私は信じていました。今も信じています。私たちの町が火と硫黄で滅ぼされる、と。だからこうして逃げてきました」
 
 CHR. Did you hear no talk of neighbor Pliable?
+クリスチャン「隣人の〈軟弱〉の噂は聞きましたか」
 
 FAITH. Yes, Christian, I heard that he followed you till he came to the Slough of Despond, where, as some said, he fell in; but he would not be known to have so done: but I am sure he was soundly bedabbled with that kind of dirt.
+忠実「聞きましたよ、クリスチャンさん。彼があなたについて行ったことを。〈失望の沼〉に来たとき、真偽の程はさだかではありませんが、そこに落ちてしまったとか。彼がそういう沼に落ちて溺れかけたとうかがっています」
 
 CHR. And what said the neighbors to him?
+クリスチャン「それで、近所の人たちは彼のことを何と言ったのですか」
 
 FAITH. He hath, since his going back, been had greatly in derision, and that among all sorts of people: some do mock and despise him, and scarce will any set him on work. He is now seven times worse than if he had never gone out of the city.
+忠実「戻ってから、すっかり町中の笑い者になりました。馬鹿にする人や見下す人もいました。彼に仕事をくれる人はほとんどありませんでした。彼の状態は、町を出て行かなかったよりも七倍も悪くなりました」
 
 CHR. But why should they be so set against him, since they also despise the way that he forsook?
+クリスチャン「でも、せっかく戻ってきたのにどうしてそんなに邪険に扱うのでしょうか。彼が見限った道は、町の人たちも軽蔑していたのに」
 
 FAITH. O, they say, Hang him; he is a turncoat; he was not true to his profession! I think God has stirred up even His enemies to hiss at him, and make him a proverb, because he hath forsaken the way. Jer. 29:18,19.
+忠実「ああ、彼を絞首刑にしろと町の人は言います。裏切り者だから。自分の告白に忠実でなかったから！　神は軟弱を敵に引き渡して責めるままにしておかれると思います。道を捨て彼をことわざにするために」（エレミヤ二九・一八〜一九）
 
 CHR. Had you no talk with him before you came out?
+クリスチャン「あなたは旅に出る前に彼と話しませんでしたか」
 
 FAITH. I met him once in the streets, but he leered away on the other side, as one ashamed of what he had done; So I spake not to him.
+クリスチャン「通りで一度出会いましたが、彼はうしろめたそうに目をそらしました。自分でしてしまったことを恥じているようでした。だから、一言も話しませんでした」
 
 CHR. Well, at my first setting out I had hopes of that man; but now I fear he will perish in the overthrow of the city. For it has happened to him according to the true proverb, The dog is turned to his vomit again, and the sow that was washed to her wallowing in the mire. [2 Pet. 2:22.]
+クリスチャン「そうですか。旅に出た当初、私は軟弱に希望を感じていました。でもこうしてお話を聞くと、彼はあの町と一緒に滅ぼされるのではないかと恐れています。犬は自分の吐いたところに戻る、豚は洗っても泥をころげまわる、という真実のことわざのとおりになったからです」（第二ペテロ二・二二）
 
 FAITH. These are my fears of him too; but who can hinder that which will be?
+忠実「私も恐れています。が、誰が運命を変えられるでしょうか」
 
 CHR. Well, neighbor Faithful, said Christian, let us leave him, and talk of things that more immediately concern ourselves. Tell me now what you have met with in the way as you came; for I know you have met with some things, or else it may be writ for a wonder.
+クリスチャン「ええ、隣人なる忠実さん。軟弱のことはなるにまかせておきましょう。私たち自身について話しましょう。あなたの旅路で出会ったものについて教えてくれませんか。きっといろいろなことがあったでしょう。そうでなければ不思議にも書かれている？？かもしれません」
 
 FAITH. I escaped the slough that I perceive you fell into, and got up to the gate without that danger; only I met with one whose name was Wanton, that had like to have done me mischief.
+忠実「あなたが落ちたという沼は避けることができました。それで無事に門に着きました。ただ、〈浮気〉という名前の女に出会って、ちょっかいを出されました」
 
 CHR. It was well you escaped her net: Joseph was hard put to it by her, and he escaped her as you did; but it had like to have cost him his life. Gen. 39:11-13. But what did she do to you?
+クリスチャン「彼女のわなに捕らえられなくてよかったですね。ヨセフも彼女の手にかかりそうになりましたが、いのちからがら、あなたのように逃れることができました（創世記三九・一一・一三）。彼女に何をされたのですか」
 
 FAITH. You cannot think (but that you know something) what a flattering tongue she had; she lay at me hard to turn aside with her, promising me all manner of content.
+忠実「彼女がどんなふうに媚を売ったか、想像もつかないでしょうが、何となくおわかりでしょう。私のすぐそばで横になって、私にあらゆる種類の悦楽を約束しました」
 
 CHR. Nay, she did not promise you the content of a good conscience.
+クリスチャン「といっても、約束したのは良心にかなった喜びではないのでしょうね」
 
 FAITH. You know what I mean; all carnal and fleshly content.
+忠実「そうです。肉的な、物質的な悦楽です」
 
 CHR. Thank God that you escaped her: the abhorred of the Lord shall fall into her pit. [Prov. 22:14.]
+クリスチャン「神に感謝します。あなたが彼女から逃れたことを。主の忌み嫌う者だけが彼女の深い穴に落ちる（箴言二二・一四）」
 
 FAITH. Nay, I know not whether I did wholly escape her or no.
+忠実「いえ、彼女のわなから完全に逃れられたのかどうか、自分でもわからないのです」
 
 CHR. Why, I trow you did not consent to her desires?
+「どうしてでしょうか。彼女の魂胆には誘われなかったように思うのですが」
 
 FAITH. No, not to defile myself; for I remembered an old writing that I had seen, which said, "Her steps take hold on Hell." [Prov. 5:5.] So I shut mine eyes, because I would not be bewitched with her looks. [Job 31:1.] Then she railed on me, and I went my way.
+忠実「自分自身を汚すことはありませんでした。以前見た古い書物にこう書いてあったのを覚えています。『彼女の足取りは地獄につづく』（箴言五・五）。だから私は、その美貌に誘惑されないように目をつぶりました（ヨブ三一・一）。それで彼女は私をののしりました。私は先に進みました」
 
 CHR. Did you meet with no other assault as you came?
+クリスチャン「他には旅路で大変な目にあいませんでしたか」
 
 FAITH. When I came to the foot of the hill called Difficulty, I met with a very aged man, who asked me what I was, and whither bound. I told him that I was a pilgrim, going to the Celestial City. Then said the old man, Thou lookest like an honest fellow; wilt thou be content to dwell with me for the wages that I shall give thee? Then I asked his name, and where he dwelt? He said his name was Adam the First, and that he dwelt in the town of Deceit. Eph. 4:22. I asked him then what was his work, and what the wages that he would give. He told me that his work was many delights; and his wages, that I should be his heir at last. I further asked him, what house he kept, and what other servants he had. So he told me that his house was maintained with all the dainties of the world, and that his servants were those of his own begetting. Then I asked how many children he had. He said that he had but three daughters, the Lust of the Flesh, the Lust of the Eyes, and the Pride of Life, 1 John, 2:16; and that I should marry them if I would. Then I asked, how long time he would have me live with him; And he told me, as long as he lived himself.
 
