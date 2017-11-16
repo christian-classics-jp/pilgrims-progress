@@ -1,4 +1,4 @@
-# （十三）　忠実
+# （十三） 忠実
 [Faithful]
 
 Now, as Christian went on his way, he came to a little ascent, which was cast up on purpose that pilgrims might see before them: up there, therefore, Christian went; and looking forward, he saw Faithful before him upon his journey: Then said Christian aloud, Ho, ho; so-ho; stay, and I will be your companion. At that Faithful looked behind him; to whom Christian cried again, Stay, stay, till I come up to you. But Faithful answered, No, I am upon my life, and the avenger of blood is behind me.
